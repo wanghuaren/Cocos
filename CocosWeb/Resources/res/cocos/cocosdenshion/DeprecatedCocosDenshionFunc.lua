@@ -1,1 +1,22 @@
-ιζ ξιμ ½½ γγ®ΣινπμεΑυδιοΕξηιξε τθεξ    ςετυςξεξδ­­τιπμογαμ ζυξγτιοξ δεπςεγατεδΤιπ¨ομδίξανε¬ξεχίξανε©    πςιξτ¨Άάξªªªªªªªªªª άξΆ®®ομδίξανε®®Ά χασ δεπςεγατεδ πμεασε υσε Ά®® ξεχίξανε ®® Ά ιξστεαδ®άξªªªªªªªªªªΆ©εξδ­­ζυξγτιοξσ οζ ΣινπμεΑυδιοΕξηιξε χιμμ βε δεπςεγατεδ βεηιξμογαμ ΣινπμεΑυδιοΕξηιξεΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΣινπμεΑυδιοΕξηιξεΔεπςεγατεδ®σθαςεδΕξηιξε¨©    δεπςεγατεδΤιπ¨ΆΣινπμεΑυδιοΕξηιξεΊσθαςεδΕξηιξεΆ¬ΆΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγεΆ©    ςετυςξ γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©εξδΣινπμεΑυδιοΕξηιξε®σθαςεδΕξηιξε ½ ΣινπμεΑυδιοΕξηιξεΔεπςεγατεδ®σθαςεδΕξηιξεζυξγτιοξ ΣινπμεΑυδιοΕξηιξεΔεπςεγατεδ®πμαωΒαγληςουξδΝυσιγ¨σεμζ¬®®®©    δεπςεγατεδΤιπ¨ΆΣινπμεΑυδιοΕξηιξεΊπμαωΒαγληςουξδΝυσιγΆ¬ΆΣινπμεΑυδιοΕξηιξεΊπμαωΝυσιγΆ©    ςετυςξ σεμζΊπμαωΝυσιγ¨®®®©εξδΣινπμεΑυδιοΕξηιξε®πμαωΒαγληςουξδΝυσιγ ½ ΣινπμεΑυδιοΕξηιξεΔεπςεγατεδ®πμαωΒαγληςουξδΝυσιγ­­ζυξγτιοξσ οζ ΣινπμεΑυδιοΕξηιξε χιμμ βε δεπςεγατεδ εξδ
+if nil == cc.SimpleAudioEngine then
+    return
+end
+--tip
+local function deprecatedTip(old_name,new_name)
+    print("\n********** \n"..old_name.." was deprecated please use ".. new_name .. " instead.\n**********")
+end
+
+--functions of SimpleAudioEngine will be deprecated begin
+local SimpleAudioEngineDeprecated = { }
+function SimpleAudioEngineDeprecated.sharedEngine()
+    deprecatedTip("SimpleAudioEngine:sharedEngine","SimpleAudioEngine:getInstance")
+    return cc.SimpleAudioEngine:getInstance()
+end
+SimpleAudioEngine.sharedEngine = SimpleAudioEngineDeprecated.sharedEngine
+
+function SimpleAudioEngineDeprecated.playBackgroundMusic(self,...)
+    deprecatedTip("SimpleAudioEngine:playBackgroundMusic","SimpleAudioEngine:playMusic")
+    return self:playMusic(...)
+end
+SimpleAudioEngine.playBackgroundMusic = SimpleAudioEngineDeprecated.playBackgroundMusic
+--functions of SimpleAudioEngine will be deprecated end

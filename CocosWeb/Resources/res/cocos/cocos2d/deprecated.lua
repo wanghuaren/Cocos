@@ -1,1 +1,15 @@
-ζυξγτιοξ σγθεδυμε¨ξοδε¬ γαμμβαγλ¬ δεμαω©    μογαμ δεμαω ½ γγ®ΔεμαωΤινεΊγςεατε¨δεμαω©    μογαμ σερυεξγε ½ γγ®ΣερυεξγεΊγςεατε¨δεμαω¬ γγ®ΓαμμΖυξγΊγςεατε¨γαμμβαγλ©©    μογαμ αγτιοξ ½ γγ®ÒεπεατΖοςεφεςΊγςεατε¨σερυεξγε©    ξοδεΊςυξΑγτιοξ¨αγτιοξ©    ςετυςξ αγτιοξεξδζυξγτιοξ πεςζοςνΧιτθΔεμαω¨ξοδε¬ γαμμβαγλ¬ δεμαω©    μογαμ δεμαω ½ γγ®ΔεμαωΤινεΊγςεατε¨δεμαω©    μογαμ σερυεξγε ½ γγ®ΣερυεξγεΊγςεατε¨δεμαω¬ γγ®ΓαμμΖυξγΊγςεατε¨γαμμβαγλ©©    ξοδεΊςυξΑγτιοξ¨σερυεξγε©    ςετυςξ σερυεξγεεξδ
+
+function schedule(node, callback, delay)
+    local delay = cc.DelayTime:create(delay)
+    local sequence = cc.Sequence:create(delay, cc.CallFunc:create(callback))
+    local action = cc.RepeatForever:create(sequence)
+    node:runAction(action)
+    return action
+end
+
+function performWithDelay(node, callback, delay)
+    local delay = cc.DelayTime:create(delay)
+    local sequence = cc.Sequence:create(delay, cc.CallFunc:create(callback))
+    node:runAction(sequence)
+    return sequence
+end

@@ -1,13 +1,9 @@
-require "cocos/init.lua"
 
-
+require "cocos.init"
 local dicNode={}
 local dicAnima={}
-
 local function main()
- 
 end
-
 xpcall(main, __G__TRACKBACK__)
 
 function getNode(_sceneName)

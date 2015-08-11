@@ -1,1 +1,117 @@
-­­ÛÛŠŠÃïðùòéçèô ¨ã© ²°±±­²°±µ ãèõëïîç­éîã®ãïíŠŠÐåòíéóóéïî éó èåòåâù çòáîôåä¬ æòåå ïæ ãèáòçå¬ ôï áîù ðåòóïî ïâôáéîéîç á ãïðùŠïæ ôèéó óïæô÷áòå áîä áóóïãéáôåä äïãõíåîôáôéïî æéìåó ¨ôèå ¢Óïæô÷áòå¢©¬ ôï äåáìŠéî ôèå Óïæô÷áòå ÷éôèïõô òåóôòéãôéïî¬ éîãìõäéîç ÷éôèïõô ìéíéôáôéïî ôèå òéçèôóŠôï õóå¬ ãïðù¬ íïäéæù¬ íåòçå¬ ðõâìéóè¬ äéóôòéâõôå¬ óõâìéãåîóå¬ áîä¯ïò óåììŠãïðéåó ïæ ôèå Óïæô÷áòå¬ áîä ôï ðåòíéô ðåòóïîó ôï ÷èïí ôèå Óïæô÷áòå éóŠæõòîéóèåä ôï äï óï¬ óõâêåãô ôï ôèå æïììï÷éîç ãïîäéôéïîóºŠŠÔèå áâïöå ãïðùòéçèô îïôéãå áîä ôèéó ðåòíéóóéïî îïôéãå óèáìì âå éîãìõäåä éîŠáìì ãïðéåó ïò óõâóôáîôéáì ðïòôéïîó ïæ ôèå Óïæô÷áòå®ŠŠÔÈÅ ÓÏÆÔ×ÁÒÅ ÉÓ ÐÒÏÖÉÄÅÄ ¢ÁÓ ÉÓ¢¬ ×ÉÔÈÏÕÔ ×ÁÒÒÁÎÔÙ ÏÆ ÁÎÙ ËÉÎÄ¬ ÅØÐÒÅÓÓ ÏÒŠÉÍÐÌÉÅÄ¬ ÉÎÃÌÕÄÉÎÇ ÂÕÔ ÎÏÔ ÌÉÍÉÔÅÄ ÔÏ ÔÈÅ ×ÁÒÒÁÎÔÉÅÓ ÏÆ ÍÅÒÃÈÁÎÔÁÂÉÌÉÔÙ¬ŠÆÉÔÎÅÓÓ ÆÏÒ Á ÐÁÒÔÉÃÕÌÁÒ ÐÕÒÐÏÓÅ ÁÎÄ ÎÏÎÉÎÆÒÉÎÇÅÍÅÎÔ® ÉÎ ÎÏ ÅÖÅÎÔ ÓÈÁÌÌ ÔÈÅŠÁÕÔÈÏÒÓ ÏÒ ÃÏÐÙÒÉÇÈÔ ÈÏÌÄÅÒÓ ÂÅ ÌÉÁÂÌÅ ÆÏÒ ÁÎÙ ÃÌÁÉÍ¬ ÄÁÍÁÇÅÓ ÏÒ ÏÔÈÅÒŠÌÉÁÂÉÌÉÔÙ¬ ×ÈÅÔÈÅÒ ÉÎ ÁÎ ÁÃÔÉÏÎ ÏÆ ÃÏÎÔÒÁÃÔ¬ ÔÏÒÔ ÏÒ ÏÔÈÅÒ×ÉÓÅ¬ ÁÒÉÓÉÎÇ ÆÒÏÍ¬ŠÏÕÔ ÏÆ ÏÒ ÉÎ ÃÏÎÎÅÃÔÉÏÎ ×ÉÔÈ ÔÈÅ ÓÏÆÔ×ÁÒÅ ÏÒ ÔÈÅ ÕÓÅ ÏÒ ÏÔÈÅÒ ÄÅÁÌÉÎÇÓ ÉÎŠÔÈÅ ÓÏÆÔ×ÁÒÅ®ŠŠÝÝŠŠìïãáì áóóåòô ½ áóóåòôŠìïãáì ôùðå ½ ôùðåŠìïãáì éðáéòó ½ éðáéòóŠìïãáì óôòéîçßæïòíáô ½ óôòéîç®æïòíáôŠŠãã®ìïáäåäßðáãëáçåó ½ ûýŠìïãáì ìïáäåäßðáãëáçåó ½ ãã®ìïáäåäßðáãëáçåóŠŠæõîãôéïî ãã®òåçéóôåò¨îáíå¬ ðáãëáçå©Š    ãã®ìïáäåäßðáãëáçåóÛîáíåÝ ½ ðáãëáçåŠåîäŠŠæõîãôéïî ãã®ìïáä¨®®®©Š    ìïãáì îáíåó ½ û®®®ýŠ    áóóåòô¨£îáíåó ¾ °¬ ¢ãã®ìïáä¨© ­ éîöáìéä ðáãëáçå îáíåó¢©ŠŠ    ìïãáì ðáãëáçåó ½ ûýŠ    æïò ß¬ îáíå éî éðáéòó¨îáíåó© äïŠ        áóóåòô¨ôùðå¨îáíå© ½½ ¢óôòéîç¢¬ óôòéîçßæïòíáô¨¢ãã®ìïáä¨© ­ éîöáìéä ðáãëáçå îáíå Ü¢¥óÜ¢¢¬ ôïóôòéîç¨îáíå©©©Š        éæ îïô ìïáäåäßðáãëáçåóÛîáíåÝ ôèåîŠ            ìïãáì ðáãëáçåÎáíå ½ óôòéîçßæïòíáô¨¢ðáãëáçåó®¥ó®éîéô¢¬ îáíå©Š            ìïãáì ãìó ½ òåñõéòå¨ðáãëáçåÎáíå©Š            áóóåòô¨ãìó¬ óôòéîçßæïòíáô¨¢ãã®ìïáä¨© ­ ðáãëáçå ãìáóó Ü¢¥óÜ¢ ìïáä æáéìåä¢¬ ðáãëáçåÎáíå©©Š            ìïáäåäßðáãëáçåóÛîáíåÝ ½ ãìóŠŠ            éæ ÄÅÂÕÇ ¾ ± ôèåîŠ                ðòéîôÉîæï¨¢ãã®ìïáä¨© ­ ìïáä íïäõìå Ü¢ðáãëáçåó®¥ó®éîéôÜ¢¢¬ îáíå©Š            åîäŠ        åîäŠ        ðáãëáçåóÛ£ðáãëáçåó « ±Ý ½ ìïáäåäßðáãëáçåóÛîáíåÝŠ    åîäŠ    òåôõòî õîðáãë¨ðáãëáçåó©ŠåîäŠŠìïãáì ìïáäß ½ ãã®ìïáäŠìïãáì âéîäßŠâéîäß ½ æõîãôéïî¨ôáòçåô¬ ®®®©Š    ìïãáì ô ½ ôùðå¨ôáòçåô©Š    áóóåòô¨ô ½½ ¢ôáâìå¢ ïò ô ½½ ¢õóåòäáôá¢¬ óôòéîçßæïòíáô¨¢ãã®âéîä¨© ­ éîöáìéä ôáòçåô¬ åøðåãôåä éó ïâêåãô¬ áãôõáì éó ¥ó¢¬ ô©©Š    ìïãáì îáíåó ½ û®®®ýŠ    áóóåòô¨£îáíåó ¾ °¬ ¢ãã®âéîä¨© ­ ðáãëáçå îáíåó åøðåãôåä¢©ŠŠ    ìïáäß¨®®®©Š    éæ îïô ôáòçåô®ãïíðïîåîôóß ôèåî ôáòçåô®ãïíðïîåîôóß ½ ûý åîäŠ    æïò ß¬ îáíå éî éðáéòó¨îáíåó© äïŠ        áóóåòô¨ôùðå¨îáíå© ½½ ¢óôòéîç¢ áîä îáíå þ½ ¢¢¬ óôòéîçßæïòíáô¨¢ãã®âéîä¨© ­ éîöáìéä ðáãëáçå îáíå Ü¢¥óÜ¢¢¬ îáíå©©Š        éæ îïô ôáòçåô®ãïíðïîåîôóßÛîáíåÝ ôèåîŠ            ìïãáì ãìó ½ ìïáäåäßðáãëáçåóÛîáíåÝŠ            æïò ßß¬ äåðåîä éî éðáéòó¨ãìó®äåðåîäó ïò ûý© äïŠ                éæ îïô ôáòçåô®ãïíðïîåîôóßÛäåðåîäÝ ôèåîŠ                    âéîäß¨ôáòçåô¬ äåðåîä©Š                åîäŠ            åîäŠ            ìïãáì ãïíðïîåîô ½ ãìóºãòåáôå¨©Š            ôáòçåô®ãïíðïîåîôóßÛîáíåÝ ½ ãïíðïîåîôŠ            ãïíðïîåîôºâéîä¨ôáòçåô©Š        åîäŠ    åîäŠŠ    òåôõòî ôáòçåôŠåîäŠãã®âéîä ½ âéîäßŠŠæõîãôéïî ãã®õîâéîä¨ôáòçåô¬ ®®®©Š    éæ îïô ôáòçåô®ãïíðïîåîôóß ôèåî òåôõòî åîäŠŠ    ìïãáì îáíåó ½ û®®®ýŠ    áóóåòô¨£îáíåó ¾ °¬ ¢ãã®õîâéîä¨© ­ éîöáìéä ðáãëáçå îáíåó¢©ŠŠ    æïò ß¬ îáíå éî éðáéòó¨îáíåó© äïŠ        áóóåòô¨ôùðå¨îáíå© ½½ ¢óôòéîç¢ áîä îáíå þ½ ¢¢¬ óôòéîçßæïòíáô¨¢ãã®õîâéîä¨© ­ éîöáìéä ðáãëáçå îáíå Ü¢¥óÜ¢¢¬ îáíå©©Š        ìïãáì ãïíðïîåîô ½ ôáòçåô®ãïíðïîåîôóßÛîáíåÝŠ        áóóåòô¨ãïíðïîåîô¬ óôòéîçßæïòíáô¨¢ãã®õîâéîä¨© ­ ãïíðïîåîô Ü¢¥óÜ¢ îïô æïõîä¢¬ ôïóôòéîç¨îáíå©©©Š        ãïíðïîåîôºõîâéîä¨ôáòçåô©Š        ôáòçåô®ãïíðïîåîôóßÛîáíåÝ ½ îéìŠ    åîäŠ    òåôõòî ôáòçåôŠåîäŠŠæõîãôéïî ãã®óåôíåôèïäó¨ôáòçåô¬ ãïíðïîåîô¬ íåôèïäó©Š    æïò ß¬ îáíå éî éðáéòó¨íåôèïäó© äïŠ        ìïãáì íåôèïä ½ ãïíðïîåîôÛîáíåÝŠ        ôáòçåôÛîáíåÝ ½ æõîãôéïî¨ßß¬ ®®®©Š            òåôõòî íåôèïä¨ãïíðïîåîô¬ ®®®©Š        åîäŠ    åîäŠåîäŠŠæõîãôéïî ãã®õîóåôíåôèïäó¨ôáòçåô¬ íåôèïäó©Š    æïò ß¬ îáíå éî éðáéòó¨íåôèïäó© äïŠ        ôáòçåôÛîáíåÝ ½ îéìŠ    åîäŠåîäŠ
+--[[
+
+Copyright (c) 2011-2015 chukong-inc.com
+
+Permission is hereby granted, free of charge, to any person obtaining a copy
+of this software and associated documentation files (the "Software"), to deal
+in the Software without restriction, including without limitation the rights
+to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
+copies of the Software, and to permit persons to whom the Software is
+furnished to do so, subject to the following conditions:
+
+The above copyright notice and this permission notice shall be included in
+all copies or substantial portions of the Software.
+
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR
+IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY,
+FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE
+AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER
+LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
+OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN
+THE SOFTWARE.
+
+]]
+
+local assert = assert
+local type = type
+local ipairs = ipairs
+local string_format = string.format
+
+cc.loaded_packages = {}
+local loaded_packages = cc.loaded_packages
+
+function cc.register(name, package)
+    cc.loaded_packages[name] = package
+end
+
+function cc.load(...)
+    local names = {...}
+    assert(#names > 0, "cc.load() - invalid package names")
+
+    local packages = {}
+    for _, name in ipairs(names) do
+        assert(type(name) == "string", string_format("cc.load() - invalid package name \"%s\"", tostring(name)))
+        if not loaded_packages[name] then
+            local packageName = string_format("packages.%s.init", name)
+            local cls = require(packageName)
+            assert(cls, string_format("cc.load() - package class \"%s\" load failed", packageName))
+            loaded_packages[name] = cls
+
+            if DEBUG > 1 then
+                printInfo("cc.load() - load module \"packages.%s.init\"", name)
+            end
+        end
+        packages[#packages + 1] = loaded_packages[name]
+    end
+    return unpack(packages)
+end
+
+local load_ = cc.load
+local bind_
+bind_ = function(target, ...)
+    local t = type(target)
+    assert(t == "table" or t == "userdata", string_format("cc.bind() - invalid target, expected is object, actual is %s", t))
+    local names = {...}
+    assert(#names > 0, "cc.bind() - package names expected")
+
+    load_(...)
+    if not target.components_ then target.components_ = {} end
+    for _, name in ipairs(names) do
+        assert(type(name) == "string" and name ~= "", string_format("cc.bind() - invalid package name \"%s\"", name))
+        if not target.components_[name] then
+            local cls = loaded_packages[name]
+            for __, depend in ipairs(cls.depends or {}) do
+                if not target.components_[depend] then
+                    bind_(target, depend)
+                end
+            end
+            local component = cls:create()
+            target.components_[name] = component
+            component:bind(target)
+        end
+    end
+
+    return target
+end
+cc.bind = bind_
+
+function cc.unbind(target, ...)
+    if not target.components_ then return end
+
+    local names = {...}
+    assert(#names > 0, "cc.unbind() - invalid package names")
+
+    for _, name in ipairs(names) do
+        assert(type(name) == "string" and name ~= "", string_format("cc.unbind() - invalid package name \"%s\"", name))
+        local component = target.components_[name]
+        assert(component, string_format("cc.unbind() - component \"%s\" not found", tostring(name)))
+        component:unbind(target)
+        target.components_[name] = nil
+    end
+    return target
+end
+
+function cc.setmethods(target, component, methods)
+    for _, name in ipairs(methods) do
+        local method = component[name]
+        target[name] = function(__, ...)
+            return method(component, ...)
+        end
+    end
+end
+
+function cc.unsetmethods(target, methods)
+    for _, name in ipairs(methods) do
+        target[name] = nil
+    end
+end

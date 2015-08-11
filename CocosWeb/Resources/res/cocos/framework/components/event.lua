@@ -1,1 +1,157 @@
-Šìïãáì Åöåîô ½ ãìáóó¨¢Åöåîô¢©ŠŠìïãáì ÅØĞÏÒÔÅÄßÍÅÔÈÏÄÓ ½ ûŠ    ¢áääÅöåîôÌéóôåîåò¢¬Š    ¢äéóğáôãèÅöåîô¢¬Š    ¢òåíïöåÅöåîôÌéóôåîåò¢¬Š    ¢òåíïöåÅöåîôÌéóôåîåòóÂùÔáç¢¬Š    ¢òåíïöåÅöåîôÌéóôåîåòóÂùÅöåîô¢¬Š    ¢òåíïöåÁììÅöåîôÌéóôåîåòó¢¬Š    ¢èáóÅöåîôÌéóôåîåò¢¬Š    ¢äõíğÁììÅöåîôÌéóôåîåòó¢¬ŠıŠŠæõîãôéïî Åöåîôºéîéôß¨©Š    óåìæ®ôáòçåôß ½ îéìŠ    óåìæ®ìéóôåîåòóß ½ ûıŠ    óåìæ®îåøôÌéóôåîåòÈáîäìåÉîäåøß ½ °ŠåîäŠŠæõîãôéïî Åöåîôºâéîä¨ôáòçåô©Š    óåìæºéîéôß¨©Š    ãã®óåôíåôèïäó¨ôáòçåô¬ óåìæ¬ ÅØĞÏÒÔÅÄßÍÅÔÈÏÄÓ©Š    óåìæ®ôáòçåôß ½ ôáòçåôŠåîäŠŠæõîãôéïî Åöåîôºõîâéîä¨ôáòçåô©Š    ãã®õîóåôíåôèïäó¨ôáòçåô¬ ÅØĞÏÒÔÅÄßÍÅÔÈÏÄÓ©Š    óåìæºéîéôß¨©ŠåîäŠŠæõîãôéïî Åöåîôºïî¨åöåîôÎáíå¬ ìéóôåîåò¬ ôáç©Š    áóóåòô¨ôùğå¨åöåîôÎáíå© ½½ ¢óôòéîç¢ áîä åöåîôÎáíå ş½ ¢¢¬Š        ¢ÅöåîôºáääÅöåîôÌéóôåîåò¨© ­ éîöáìéä åöåîôÎáíå¢©Š    åöåîôÎáíå ½ óôòéîç®õğğåò¨åöåîôÎáíå©Š    éæ óåìæ®ìéóôåîåòóßÛåöåîôÎáíåİ ½½ îéì ôèåîŠ        óåìæ®ìéóôåîåòóßÛåöåîôÎáíåİ ½ ûıŠ    åîäŠŠ    óåìæ®îåøôÌéóôåîåòÈáîäìåÉîäåøß ½ óåìæ®îåøôÌéóôåîåòÈáîäìåÉîäåøß « ±Š    ìïãáì èáîäìå ½ ôïóôòéîç¨óåìæ®îåøôÌéóôåîåòÈáîäìåÉîäåøß©Š    ôáç ½ ôáç ïò ¢¢Š    óåìæ®ìéóôåîåòóßÛåöåîôÎáíåİÛèáîäìåİ ½ ûìéóôåîåò¬ ôáçıŠŠ    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ğòéîôÉîæï¨¢¥ó ÛÅöåîôİ áääÅöåîôÌéóôåîåò¨© ­ åöåîôº ¥ó¬ èáîäìåº ¥ó¬ ôáçº Ü¢¥óÜ¢¢¬Š                  ôïóôòéîç¨óåìæ®ôáòçåôß©¬ åöåîôÎáíå¬ èáîäìå¬ ôïóôòéîç¨ôáç©©Š    åîäŠŠ    òåôõòî óåìæ®ôáòçåôß¬ èáîäìåŠåîäŠŠÅöåîô®áääÅöåîôÌéóôåîåò ½ Åöåîô®ïîŠŠæõîãôéïî ÅöåîôºäéóğáôãèÅöåîô¨åöåîô©Š    åöåîô®îáíå ½ óôòéîç®õğğåò¨ôïóôòéîç¨åöåîô®îáíå©©Š    ìïãáì åöåîôÎáíå ½ åöåîô®îáíåŠ    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ğòéîôÉîæï¨¢¥ó ÛÅöåîôİ äéóğáôãèÅöåîô¨© ­ åöåîô ¥ó¢¬ ôïóôòéîç¨óåìæ®ôáòçåôß©¬ åöåîôÎáíå©Š    åîäŠŠ    éæ óåìæ®ìéóôåîåòóßÛåöåîôÎáíåİ ½½ îéì ôèåî òåôõòî åîäŠ    åöåîô®ôáòçåô ½ óåìæ®ôáòçåôßŠ    åöåîô®óôïğß ½ æáìóåŠ    åöåîô®óôïğ ½ æõîãôéïî¨óåìæ©Š        óåìæ®óôïğß ½ ôòõåŠ    åîäŠŠ    æïò èáîäìå¬ ìéóôåîåò éî ğáéòó¨óåìæ®ìéóôåîåòóßÛåöåîôÎáíåİ© äïŠ        éæ ÄÅÂÕÇ ¾ ± ôèåîŠ            ğòéîôÉîæï¨¢¥ó ÛÅöåîôİ äéóğáôãèÅöåîô¨© ­ äéóğáôãèéîç åöåîô ¥ó ôï ìéóôåîåò ¥ó¢¬ ôïóôòéîç¨óåìæ®ôáòçåôß©¬ åöåîôÎáíå¬ èáîäìå©Š        åîäŠ        ­­ ìéóôåîåòÛ±İ ½ ìéóôåîåòŠ        ­­ ìéóôåîåòÛ²İ ½ ôáçŠ        åöåîô®ôáç ½ ìéóôåîåòÛ²İŠ        ìéóôåîåòÛ±İ¨åöåîô©Š        éæ åöåîô®óôïğß ôèåîŠ            éæ ÄÅÂÕÇ ¾ ± ôèåîŠ                ğòéîôÉîæï¨¢¥ó ÛÅöåîôİ äéóğáôãèÅöåîô¨© ­ âòåáë äéóğáôãèéîç æïò åöåîô ¥ó¢¬ ôïóôòéîç¨óåìæ®ôáòçåôß©¬ åöåîôÎáíå©Š            åîäŠ            âòåáëŠ        åîäŠ    åîäŠŠ    òåôõòî óåìæ®ôáòçåôßŠåîäŠŠæõîãôéïî ÅöåîôºòåíïöåÅöåîôÌéóôåîåò¨èáîäìåÔïÒåíïöå©Š    æïò åöåîôÎáíå¬ ìéóôåîåòóÆïòÅöåîô éî ğáéòó¨óåìæ®ìéóôåîåòóß© äïŠ        æïò èáîäìå¬ ß éî ğáéòó¨ìéóôåîåòóÆïòÅöåîô© äïŠ            éæ èáîäìå ½½ èáîäìåÔïÒåíïöå ôèåîŠ                ìéóôåîåòóÆïòÅöåîôÛèáîäìåİ ½ îéìŠ                éæ ÄÅÂÕÇ ¾ ± ôèåîŠ                    ğòéîôÉîæï¨¢¥ó ÛÅöåîôİ òåíïöåÅöåîôÌéóôåîåò¨© ­ òåíïöå ìéóôåîåò Û¥óİ æïò åöåîô ¥ó¢¬ ôïóôòéîç¨óåìæ®ôáòçåôß©¬ èáîäìå¬ åöåîôÎáíå©Š                åîäŠ                òåôõòî óåìæ®ôáòçåôßŠ            åîäŠ        åîäŠ    åîäŠŠ    òåôõòî óåìæ®ôáòçåôßŠåîäŠŠæõîãôéïî ÅöåîôºòåíïöåÅöåîôÌéóôåîåòóÂùÔáç¨ôáçÔïÒåíïöå©Š    æïò åöåîôÎáíå¬ ìéóôåîåòóÆïòÅöåîô éî ğáéòó¨óåìæ®ìéóôåîåòóß© äïŠ        æïò èáîäìå¬ ìéóôåîåò éî ğáéòó¨ìéóôåîåòóÆïòÅöåîô© äïŠ            ­­ ìéóôåîåòÛ±İ ½ ìéóôåîåòŠ            ­­ ìéóôåîåòÛ²İ ½ ôáçŠ            éæ ìéóôåîåòÛ²İ ½½ ôáçÔïÒåíïöå ôèåîŠ                ìéóôåîåòóÆïòÅöåîôÛèáîäìåİ ½ îéìŠ                éæ ÄÅÂÕÇ ¾ ± ôèåîŠ                    ğòéîôÉîæï¨¢¥ó ÛÅöåîôİ òåíïöåÅöåîôÌéóôåîåò¨© ­ òåíïöå ìéóôåîåò Û¥óİ æïò åöåîô ¥ó¢¬ ôïóôòéîç¨óåìæ®ôáòçåôß©¬ èáîäìå¬ åöåîôÎáíå©Š                åîäŠ            åîäŠ        åîäŠ    åîäŠŠ    òåôõòî óåìæ®ôáòçåôßŠåîäŠŠæõîãôéïî ÅöåîôºòåíïöåÅöåîôÌéóôåîåòóÂùÅöåîô¨åöåîôÎáíå©Š    óåìæ®ìéóôåîåòóßÛóôòéîç®õğğåò¨åöåîôÎáíå©İ ½ îéìŠ    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ğòéîôÉîæï¨¢¥ó ÛÅöåîôİ òåíïöåÁììÅöåîôÌéóôåîåòóÆïòÅöåîô¨© ­ òåíïöå áìì ìéóôåîåòó æïò åöåîô ¥ó¢¬ ôïóôòéîç¨óåìæ®ôáòçåôß©¬ åöåîôÎáíå©Š    åîäŠ    òåôõòî óåìæ®ôáòçåôßŠåîäŠŠæõîãôéïî ÅöåîôºòåíïöåÁììÅöåîôÌéóôåîåòó¨©Š    óåìæ®ìéóôåîåòóß ½ ûıŠ    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ğòéîôÉîæï¨¢¥ó ÛÅöåîôİ òåíïöåÁììÅöåîôÌéóôåîåòó¨© ­ òåíïöå áìì ìéóôåîåòó¢¬ ôïóôòéîç¨óåìæ®ôáòçåôß©©Š    åîäŠ    òåôõòî óåìæ®ôáòçåôßŠåîäŠŠæõîãôéïî ÅöåîôºèáóÅöåîôÌéóôåîåò¨åöåîôÎáíå©Š    åöåîôÎáíå ½ óôòéîç®õğğåò¨ôïóôòéîç¨åöåîôÎáíå©©Š    ìïãáì ô ½ óåìæ®ìéóôåîåòóßÛåöåîôÎáíåİŠ    æïò ß¬ ßß éî ğáéòó¨ô© äïŠ        òåôõòî ôòõåŠ    åîäŠ    òåôõòî æáìóåŠåîäŠŠæõîãôéïî ÅöåîôºäõíğÁììÅöåîôÌéóôåîåòó¨©Š    ğòéîô¨¢­­­­ ÅöåîôºäõíğÁììÅöåîôÌéóôåîåòó¨© ­­­­¢©Š    æïò îáíå¬ ìéóôåîåòó éî ğáéòó¨óåìæ®ìéóôåîåòóß© äïŠ        ğòéîôæ¨¢­­ åöåîôº ¥ó¢¬ îáíå©Š        æïò èáîäìå¬ ìéóôåîåò éî ğáéòó¨ìéóôåîåòó© äïŠ            ğòéîôæ¨¢­­     ìéóôåîåòº ¥ó¬ èáîäìåº ¥ó¢¬ ôïóôòéîç¨ìéóôåîåòÛ±İ©¬ ôïóôòéîç¨èáîäìå©©Š        åîäŠ    åîäŠ    òåôõòî óåìæ®ôáòçåôßŠåîäŠŠòåôõòî ÅöåîôŠ
+
+local Event = class("Event")
+
+local EXPORTED_METHODS = {
+    "addEventListener",
+    "dispatchEvent",
+    "removeEventListener",
+    "removeEventListenersByTag",
+    "removeEventListenersByEvent",
+    "removeAllEventListeners",
+    "hasEventListener",
+    "dumpAllEventListeners",
+}
+
+function Event:init_()
+    self.target_ = nil
+    self.listeners_ = {}
+    self.nextListenerHandleIndex_ = 0
+end
+
+function Event:bind(target)
+    self:init_()
+    cc.setmethods(target, self, EXPORTED_METHODS)
+    self.target_ = target
+end
+
+function Event:unbind(target)
+    cc.unsetmethods(target, EXPORTED_METHODS)
+    self:init_()
+end
+
+function Event:on(eventName, listener, tag)
+    assert(type(eventName) == "string" and eventName ~= "",
+        "Event:addEventListener() - invalid eventName")
+    eventName = string.upper(eventName)
+    if self.listeners_[eventName] == nil then
+        self.listeners_[eventName] = {}
+    end
+
+    self.nextListenerHandleIndex_ = self.nextListenerHandleIndex_ + 1
+    local handle = tostring(self.nextListenerHandleIndex_)
+    tag = tag or ""
+    self.listeners_[eventName][handle] = {listener, tag}
+
+    if DEBUG > 1 then
+        printInfo("%s [Event] addEventListener() - event: %s, handle: %s, tag: \"%s\"",
+                  tostring(self.target_), eventName, handle, tostring(tag))
+    end
+
+    return self.target_, handle
+end
+
+Event.addEventListener = Event.on
+
+function Event:dispatchEvent(event)
+    event.name = string.upper(tostring(event.name))
+    local eventName = event.name
+    if DEBUG > 1 then
+        printInfo("%s [Event] dispatchEvent() - event %s", tostring(self.target_), eventName)
+    end
+
+    if self.listeners_[eventName] == nil then return end
+    event.target = self.target_
+    event.stop_ = false
+    event.stop = function(self)
+        self.stop_ = true
+    end
+
+    for handle, listener in pairs(self.listeners_[eventName]) do
+        if DEBUG > 1 then
+            printInfo("%s [Event] dispatchEvent() - dispatching event %s to listener %s", tostring(self.target_), eventName, handle)
+        end
+        -- listener[1] = listener
+        -- listener[2] = tag
+        event.tag = listener[2]
+        listener[1](event)
+        if event.stop_ then
+            if DEBUG > 1 then
+                printInfo("%s [Event] dispatchEvent() - break dispatching for event %s", tostring(self.target_), eventName)
+            end
+            break
+        end
+    end
+
+    return self.target_
+end
+
+function Event:removeEventListener(handleToRemove)
+    for eventName, listenersForEvent in pairs(self.listeners_) do
+        for handle, _ in pairs(listenersForEvent) do
+            if handle == handleToRemove then
+                listenersForEvent[handle] = nil
+                if DEBUG > 1 then
+                    printInfo("%s [Event] removeEventListener() - remove listener [%s] for event %s", tostring(self.target_), handle, eventName)
+                end
+                return self.target_
+            end
+        end
+    end
+
+    return self.target_
+end
+
+function Event:removeEventListenersByTag(tagToRemove)
+    for eventName, listenersForEvent in pairs(self.listeners_) do
+        for handle, listener in pairs(listenersForEvent) do
+            -- listener[1] = listener
+            -- listener[2] = tag
+            if listener[2] == tagToRemove then
+                listenersForEvent[handle] = nil
+                if DEBUG > 1 then
+                    printInfo("%s [Event] removeEventListener() - remove listener [%s] for event %s", tostring(self.target_), handle, eventName)
+                end
+            end
+        end
+    end
+
+    return self.target_
+end
+
+function Event:removeEventListenersByEvent(eventName)
+    self.listeners_[string.upper(eventName)] = nil
+    if DEBUG > 1 then
+        printInfo("%s [Event] removeAllEventListenersForEvent() - remove all listeners for event %s", tostring(self.target_), eventName)
+    end
+    return self.target_
+end
+
+function Event:removeAllEventListeners()
+    self.listeners_ = {}
+    if DEBUG > 1 then
+        printInfo("%s [Event] removeAllEventListeners() - remove all listeners", tostring(self.target_))
+    end
+    return self.target_
+end
+
+function Event:hasEventListener(eventName)
+    eventName = string.upper(tostring(eventName))
+    local t = self.listeners_[eventName]
+    for _, __ in pairs(t) do
+        return true
+    end
+    return false
+end
+
+function Event:dumpAllEventListeners()
+    print("---- Event:dumpAllEventListeners() ----")
+    for name, listeners in pairs(self.listeners_) do
+        printf("-- event: %s", name)
+        for handle, listener in pairs(listeners) do
+            printf("--     listener: %s, handle: %s", tostring(listener[1]), tostring(handle))
+        end
+    end
+    return self.target_
+end
+
+return Event

@@ -1,1 +1,384 @@
-μογαμ δπίιξιτιαμιϊεδ ½ ζαμσεμογαμ δπίσθαδες      ½ ξιμμογαμ δπίγομοςΜογατιοξ ½ ­±μογαμ δπίγομος ½ ϋ ±®°¬ ±®°¬ ±®°¬ ±®° ύμογαμ δπίποιξτΣιϊεΜογατιοξ ½ ­±μογαμ δπίποιξτΣιϊε ½ ±®°μογαμ ΣΘΑΔΕÒίΞΑΝΕίΠΟΣΙΤΙΟΞίΥίΓΟΜΟÒ ½ ΆΣθαδεςΠοσιτιοξίυΓομοςΆμογαμ ταςηετΠματζοςν ½ γγ®ΑππμιγατιοξΊηετΙξσταξγε¨©ΊηετΤαςηετΠματζοςν¨©μογαμ ζυξγτιοξ μαϊωίιξιτ¨©    ιζ ξοτ δπίιξιτιαμιϊεδ τθεξ        δπίσθαδες ½ γγ®ΣθαδεςΓαγθεΊηετΙξσταξγε¨©ΊηετΠςοηςαν¨ΣΘΑΔΕÒίΞΑΝΕίΠΟΣΙΤΙΟΞίΥίΓΟΜΟÒ©        ­­δπίσθαδεςΊςεταιξ¨©        ιζ ξιμ ώ½ δπίσθαδες τθεξ            δπίγομοςΜογατιοξ ½ ημ®ηετΥξιζοςνΜογατιοξ¨ δπίσθαδεςΊηετΠςοηςαν¨©¬ ΆυίγομοςΆ©            δπίποιξτΣιϊεΜογατιοξ ½ ημ®ηετΥξιζοςνΜογατιοξ¨ δπίσθαδεςΊηετΠςοηςαν¨©¬ ΆυίποιξτΣιϊεΆ©            δπίΙξιτιαμιϊεδ ½ τςυε        εξδ    εξδ    ιζ ξιμ ½½ δπίσθαδες τθεξ        πςιξτ¨ΆΕςςοςΊδπίσθαδες ισ ξιμ΅Ά©        ςετυςξ ζαμσε    εξδ    ςετυςξ τςυεεξδμογαμ ζυξγτιοξ σετΔςαχΠςοπεςτω¨©    ημ®ημΕξαβμεΦεςτεψΑττςιβσ¨ ΓΓΓοξσταξτσ®ΦΕÒΤΕΨίΑΤΤÒΙΒίΖΜΑΗίΠΟΣΙΤΙΟΞ ©    δπίσθαδεςΊυσε¨©    δπίσθαδεςΊσετΥξιζοςνσΖοςΒυιμτιξσ¨©    δπίσθαδεςΊσετΥξιζοςνΜογατιοξΧιτθ΄ζφ¨δπίγομοςΜογατιοξ¬ δπίγομος¬ ±©εξδζυξγτιοξ γγΔςαχΙξιτ¨©    μαϊωίιξιτ¨©εξδζυξγτιοξ γγΔςαχΖςεε¨©    δπίιξιτιαμιϊεδ ½ ζαμσεεξδζυξγτιοξ γγΔςαχΓομος΄ζ¨ς¬η¬β¬α©    δπίγομοςΫ±έ ½ ς    δπίγομοςΫ²έ ½ η    δπίγομοςΫ³έ ½ β    δπίγομοςΫ΄έ ½ αεξδζυξγτιοξ γγΠοιξτΣιϊε¨ποιξτΣιϊε©    δπίποιξτΣιϊε ½ ποιξτΣιϊε ª γγ®ΔιςεγτοςΊηετΙξσταξγε¨©ΊηετΓοξτεξτΣγαμεΖαγτος¨©εξδζυξγτιοξ γγΔςαχΓομος΄Β¨ς¬η¬β¬α©    δπίγομοςΫ±έ ½ ς ― ²µµ®°    δπίγομοςΫ²έ ½ η ― ²µµ®°    δπίγομοςΫ³έ ½ β ― ²µµ®°    δπίγομοςΫ΄έ ½ α ― ²µµ®°εξδζυξγτιοξ γγΔςαχΠοιξτ¨ποιξτ©    ιζ ξοτ μαϊωίιξιτ¨© τθεξ        ςετυςξ    εξδ    μογαμ φεςτεψΒυζζες ½ ϋ ύ    μογαμ ζυξγτιοξ ιξιτΒυζζες¨©        φεςτεψΒυζζες®βυζζεςίιδ ½ ημ®γςεατεΒυζζες¨©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬φεςτεψΒυζζες®βυζζεςίιδ©        μογαμ φεςτιγεσ ½ ϋ ποιξτ®ψ¬ποιξτ®ωύ        ημ®βυζζεςΔατα¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬²¬φεςτιγεσ¬ημ®ΣΤΑΤΙΓίΔÒΑΧ©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ °©    εξδ    ιξιτΒυζζες¨©    σετΔςαχΠςοπεςτω¨©    δπίσθαδεςΊσετΥξιζοςνΜογατιοξΧιτθ±ζ¨δπίποιξτΣιϊεΜογατιοξ¬ δπίποιξτΣιϊε©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬φεςτεψΒυζζες®βυζζεςίιδ©    ημ®φεςτεψΑττςιβΠοιξτες¨ΓΓΓοξσταξτσ®ΦΕÒΤΕΨίΑΤΤÒΙΒίΠΟΣΙΤΙΟΞ¬ ²¬ ημ®ΖΜΟΑΤ¬ ζαμσε¬ °¬ °©    ημ®δςαχΑςςαωσ¨ημ®ΠΟΙΞΤΣ¬°¬±©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬°©εξδζυξγτιοξ γγΔςαχΠοιξτσ¨ποιξτσ¬ξυνΟζΠοιξτ©    ιζ ξοτ μαϊωίιξιτ¨© τθεξ        ςετυςξ    εξδ    μογαμ φεςτεψΒυζζες ½ ϋύ    μογαμ ι ½ ±    μογαμ ζυξγτιοξ ιξιτΒυζζες¨©        φεςτεψΒυζζες®βυζζεςίιδ ½ ημ®γςεατεΒυζζες¨©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ φεςτεψΒυζζες®βυζζεςίιδ©        μογαμ φεςτιγεσ ½ ϋύ        ζος ι ½ ±¬ ξυνΟζΠοιξτ δο            φεςτιγεσΫ² ª ι ­ ±έ ½ ποιξτσΫιέ®ψ            φεςτιγεσΫ² ª ιέ     ½ ποιξτσΫιέ®ω        εξδ        ημ®βυζζεςΔατα¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ ξυνΟζΠοιξτ ª ²¬ φεςτιγεσ¬ ημ®ΣΤΑΤΙΓίΔÒΑΧ©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ °©    εξδ    ιξιτΒυζζες¨©    σετΔςαχΠςοπεςτω¨©    δπίσθαδεςΊσετΥξιζοςνΜογατιοξΧιτθ±ζ¨δπίποιξτΣιϊεΜογατιοξ¬ δπίποιξτΣιϊε©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬φεςτεψΒυζζες®βυζζεςίιδ©    ημ®φεςτεψΑττςιβΠοιξτες¨ΓΓΓοξσταξτσ®ΦΕÒΤΕΨίΑΤΤÒΙΒίΠΟΣΙΤΙΟΞ¬ ²¬ ημ®ΖΜΟΑΤ¬ ζαμσε¬ °¬ °©    ημ®δςαχΑςςαωσ¨ημ®ΠΟΙΞΤΣ¬°¬ξυνΟζΠοιξτ©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬°©εξδζυξγτιοξ γγΔςαχΜιξε¨οςιηιξ¬δεστιξατιοξ©    ιζ ξοτ μαϊωίιξιτ¨© τθεξ        ςετυςξ    εξδ    μογαμ φεςτεψΒυζζες ½ ϋύ    μογαμ ζυξγτιοξ ιξιτΒυζζες¨©        φεςτεψΒυζζες®βυζζεςίιδ ½ ημ®γςεατεΒυζζες¨©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ φεςτεψΒυζζες®βυζζεςίιδ©        μογαμ φεςτιγεσ ½ ϋ οςιηιξ®ψ¬ οςιηιξ®ω¬ δεστιξατιοξ®ψ¬ δεστιξατιοξ®ωύ        ημ®βυζζεςΔατα¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬΄¬φεςτιγεσ¬ημ®ΣΤΑΤΙΓίΔÒΑΧ©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ °©    εξδ    ιξιτΒυζζες¨©    σετΔςαχΠςοπεςτω¨©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬φεςτεψΒυζζες®βυζζεςίιδ©    ημ®φεςτεψΑττςιβΠοιξτες¨ΓΓΓοξσταξτσ®ΦΕÒΤΕΨίΑΤΤÒΙΒίΠΟΣΙΤΙΟΞ¬ ²¬ ημ®ΖΜΟΑΤ¬ ζαμσε¬ °¬ °©    ημ®δςαχΑςςαωσ¨ημ®ΜΙΞΕΣ ¬°¬²©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬°©εξδζυξγτιοξ γγΔςαχΠομω¨ποιξτσ¬ξυνΟζΠοιξτσ¬γμοσεΠομωηοξ©    ιζ ξοτ μαϊωίιξιτ¨© τθεξ        ςετυςξ    εξδ    μογαμ φεςτεψΒυζζες ½ ϋύ    μογαμ ι ½ ±    μογαμ ζυξγτιοξ ιξιτΒυζζες¨©        φεςτεψΒυζζες®βυζζεςίιδ ½ ημ®γςεατεΒυζζες¨©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ φεςτεψΒυζζες®βυζζεςίιδ©        μογαμ φεςτιγεσ ½ ϋύ        ζος ι ½ ±¬ ξυνΟζΠοιξτσ δο            φεςτιγεσΫ² ª ι ­ ±έ ½ ποιξτσΫιέ®ψ            φεςτιγεσΫ² ª ιέ     ½ ποιξτσΫιέ®ω        εξδ        ημ®βυζζεςΔατα¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ ξυνΟζΠοιξτσ ª ²¬ φεςτιγεσ¬ ημ®ΣΤΑΤΙΓίΔÒΑΧ©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ °©    εξδ    ιξιτΒυζζες¨©    σετΔςαχΠςοπεςτω¨©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬φεςτεψΒυζζες®βυζζεςίιδ©    ημ®φεςτεψΑττςιβΠοιξτες¨ΓΓΓοξσταξτσ®ΦΕÒΤΕΨίΑΤΤÒΙΒίΠΟΣΙΤΙΟΞ¬ ²¬ ημ®ΖΜΟΑΤ¬ ζαμσε¬ °¬ °©    ιζ γμοσεΠομωηοξ τθεξ        ημ®δςαχΑςςαωσ¨ημ®ΜΙΞΕίΜΟΟΠ ¬ °¬ ξυνΟζΠοιξτσ©    εμσε        ημ®δςαχΑςςαωσ¨ημ®ΜΙΞΕίΣΤÒΙΠ¬ °¬ ξυνΟζΠοιξτσ©    εξδ    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬°©εξδζυξγτιοξ γγΔςαχΣομιδΠομω¨ποιξτσ¬ξυνΟζΠοιξτσ¬γομος©    ιζ ξοτ μαϊωίιξιτ¨© τθεξ        ςετυςξ    εξδ    μογαμ φεςτεψΒυζζες ½ ϋύ    μογαμ ι ½ ±    μογαμ ζυξγτιοξ ιξιτΒυζζες¨©        φεςτεψΒυζζες®βυζζεςίιδ ½ ημ®γςεατεΒυζζες¨©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ φεςτεψΒυζζες®βυζζεςίιδ©        μογαμ φεςτιγεσ ½ ϋύ        ζος ι ½ ±¬ ξυνΟζΠοιξτσ δο            φεςτιγεσΫ² ª ι ­ ±έ ½ ποιξτσΫιέ®ψ            φεςτιγεσΫ² ª ιέ     ½ ποιξτσΫιέ®ω        εξδ        ημ®βυζζεςΔατα¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ ξυνΟζΠοιξτσ ª ²¬ φεςτιγεσ¬ ημ®ΣΤΑΤΙΓίΔÒΑΧ©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ °©    εξδ    ιξιτΒυζζες¨©    ημ®ημΕξαβμεΦεςτεψΑττςιβσ¨ ΓΓΓοξσταξτσ®ΦΕÒΤΕΨίΑΤΤÒΙΒίΖΜΑΗίΠΟΣΙΤΙΟΞ ©    δπίσθαδεςΊυσε¨©    δπίσθαδεςΊσετΥξιζοςνσΖοςΒυιμτιξσ¨©    δπίσθαδεςΊσετΥξιζοςνΜογατιοξΧιτθ΄ζφ¨δπίγομοςΜογατιοξ¬ γομος¬ ±©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬φεςτεψΒυζζες®βυζζεςίιδ©    ημ®φεςτεψΑττςιβΠοιξτες¨ΓΓΓοξσταξτσ®ΦΕÒΤΕΨίΑΤΤÒΙΒίΠΟΣΙΤΙΟΞ¬ ²¬ ημ®ΖΜΟΑΤ¬ ζαμσε¬ °¬ °©    ημ®δςαχΑςςαωσ¨ημ®ΤÒΙΑΞΗΜΕίΖΑΞ ¬ °¬ ξυνΟζΠοιξτσ©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬°©εξδζυξγτιοξ γγΔςαχÒεγτ¨οςιηιξ¬δεστιξατιοξ©    γγΔςαχΜιξε¨ΓΓΠοιξτΊίίγαμμ¨οςιηιξ®ψ¬ οςιηιξ®ω©¬ ΓΓΠοιξτΊίίγαμμ¨δεστιξατιοξ®ψ¬ οςιηιξ®ω©©    γγΔςαχΜιξε¨ΓΓΠοιξτΊίίγαμμ¨δεστιξατιοξ®ψ¬ οςιηιξ®ω©¬ ΓΓΠοιξτΊίίγαμμ¨δεστιξατιοξ®ψ¬ δεστιξατιοξ®ω©©    γγΔςαχΜιξε¨ΓΓΠοιξτΊίίγαμμ¨δεστιξατιοξ®ψ¬ δεστιξατιοξ®ω©¬ ΓΓΠοιξτΊίίγαμμ¨οςιηιξ®ψ¬ δεστιξατιοξ®ω©©    γγΔςαχΜιξε¨ΓΓΠοιξτΊίίγαμμ¨οςιηιξ®ψ¬ δεστιξατιοξ®ω©¬ ΓΓΠοιξτΊίίγαμμ¨οςιηιξ®ψ¬ οςιηιξ®ω©©εξδζυξγτιοξ γγΔςαχΣομιδÒεγτ¨ οςιηιξ¬δεστιξατιοξ¬γομος ©    μογαμ φεςτιγεσ ½ ϋ οςιηιξ¬ ΓΓΠοιξτΊίίγαμμ¨δεστιξατιοξ®ψ¬ οςιηιξ®ω© ¬ δεστιξατιοξ¬ ΓΓΠοιξτΊίίγαμμ¨οςιηιξ®ψ¬ δεστιξατιοξ®ω© ύ    γγΔςαχΣομιδΠομω¨φεςτιγεσ¬΄¬γομος©εξδζυξγτιοξ γγΔςαχΓιςγμεΣγαμε¨ γεξτες¬ ςαδιυσ¬ αξημε¬ σεηνεξτσ¬δςαχΜιξεΤοΓεξτες¬σγαμεΨ¬σγαμεΩ©    ιζ ξοτ μαϊωίιξιτ¨© τθεξ        ςετυςξ    εξδ    μογαμ αδδιτιοξαμΣεηνεξτ ½ ±    ιζ δςαχΜιξεΤοΓεξτες τθεξ        αδδιτιοξαμΣεηνεξτ ½ αδδιτιοξαμΣεηνεξτ « ±    εξδ    μογαμ φεςτεψΒυζζες ½ ϋ ύ    μογαμ ζυξγτιοξ ιξιτΒυζζες¨©        μογαμ γοεζ ½ ²®° ª νατθ®πι ― σεηνεξτσ        μογαμ ι ½ ±        μογαμ φεςτιγεσ ½ ϋύ        φεςτεψΒυζζες®βυζζεςίιδ ½ ημ®γςεατεΒυζζες¨©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ φεςτεψΒυζζες®βυζζεςίιδ©        ζος ι ½ ±¬ σεηνεξτσ « ± δο            μογαμ ςαδσ ½ ¨ι ­ ±© ª γοεζ            μογαμ κ    ½ ςαδιυσ ª νατθ®γοσ¨ςαδσ « αξημε© ª σγαμεΨ « γεξτες®ψ            μογαμ λ    ½ ςαδιυσ ª νατθ®σιξ¨ςαδσ « αξημε© ª σγαμεΩ « γεξτες®ω            φεςτιγεσΫι ª ² ­ ±έ ½ κ            φεςτιγεσΫι ª ²έ     ½ λ         εξδ        φεςτιγεσΫ¨σεηνεξτσ « ²© ª ² ­ ±έ ½ γεξτες®ψ        φεςτιγεσΫ¨σεηνεξτσ « ²© ª ²έ     ½ γεξτες®ω        ημ®βυζζεςΔατα¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ ¨σεηνεξτσ « ²© ª ²¬ φεςτιγεσ¬ ημ®ΣΤΑΤΙΓίΔÒΑΧ©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ °©    εξδ    ιξιτΒυζζες¨©    σετΔςαχΠςοπεςτω¨©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬φεςτεψΒυζζες®βυζζεςίιδ©    ημ®φεςτεψΑττςιβΠοιξτες¨ΓΓΓοξσταξτσ®ΦΕÒΤΕΨίΑΤΤÒΙΒίΠΟΣΙΤΙΟΞ¬ ²¬ ημ®ΖΜΟΑΤ¬ ζαμσε¬ °¬ °©    ημ®δςαχΑςςαωσ¨ημ®ΜΙΞΕίΣΤÒΙΠ ¬ °¬ σεηνεξτσ « αδδιτιοξαμΣεηνεξτ©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬°©εξδζυξγτιοξ γγΔςαχΓιςγμε¨γεξτες¬ ςαδιυσ¬ αξημε¬ σεηνεξτσ¬ δςαχΜιξεΤοΓεξτες©    γγΔςαχΓιςγμεΣγαμε¨γεξτες¬ ςαδιυσ¬ αξημε¬ σεηνεξτσ¬ δςαχΜιξεΤοΓεξτες¬ ±®°¬ ±®°©εξδζυξγτιοξ γγΔςαχΣομιδΓιςγμε¨γεξτες¬ ςαδιυσ¬ αξημε¬ σεηνεξτσ¬σγαμεΨ¬σγαμεΩ©    ιζ ξοτ μαϊωίιξιτ¨© τθεξ        ςετυςξ    εξδ    μογαμ φεςτεψΒυζζες ½ ϋ ύ    μογαμ ζυξγτιοξ ιξιτΒυζζες¨©        μογαμ γοεζ ½ ²®° ª νατθ®πι ― σεηνεξτσ        μογαμ ι ½ ±        μογαμ φεςτιγεσ ½ ϋύ        φεςτεψΒυζζες®βυζζεςίιδ ½ ημ®γςεατεΒυζζες¨©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ φεςτεψΒυζζες®βυζζεςίιδ©        ζος ι ½ ±¬ σεηνεξτσ « ± δο            μογαμ ςαδσ ½ ¨ι ­ ±© ª γοεζ            μογαμ κ    ½ ςαδιυσ ª νατθ®γοσ¨ςαδσ « αξημε© ª σγαμεΨ « γεξτες®ψ            μογαμ λ    ½ ςαδιυσ ª νατθ®σιξ¨ςαδσ « αξημε© ª σγαμεΩ « γεξτες®ω            φεςτιγεσΫι ª ² ­ ±έ ½ κ            φεςτιγεσΫι ª ²έ     ½ λ         εξδ        φεςτιγεσΫ¨σεηνεξτσ « ²© ª ² ­ ±έ ½ γεξτες®ψ        φεςτιγεσΫ¨σεηνεξτσ « ²© ª ²έ     ½ γεξτες®ω        ημ®βυζζεςΔατα¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ ¨σεηνεξτσ « ²© ª ²¬ φεςτιγεσ¬ ημ®ΣΤΑΤΙΓίΔÒΑΧ©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ °©    εξδ    ιξιτΒυζζες¨©    σετΔςαχΠςοπεςτω¨©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬φεςτεψΒυζζες®βυζζεςίιδ©    ημ®φεςτεψΑττςιβΠοιξτες¨ΓΓΓοξσταξτσ®ΦΕÒΤΕΨίΑΤΤÒΙΒίΠΟΣΙΤΙΟΞ¬ ²¬ ημ®ΖΜΟΑΤ¬ ζαμσε¬ °¬ °©    ημ®δςαχΑςςαωσ¨ημ®ΤÒΙΑΞΗΜΕίΖΑΞ ¬ °¬ σεηνεξτσ « ±©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬°©εξδζυξγτιοξ γγΔςαχΡυαδΒεϊιες¨οςιηιξ¬ γοξτςομ¬ δεστιξατιοξ¬ σεηνεξτσ©    ιζ ξοτ μαϊωίιξιτ¨© τθεξ        ςετυςξ    εξδ    μογαμ φεςτεψΒυζζες ½ ϋ ύ    μογαμ ζυξγτιοξ ιξιτΒυζζες¨©        μογαμ φεςτιγεσ ½ ϋ ύ        μογαμ ι ½ ±        μογαμ τ ½ °®°        ζος ι ½ ±¬ σεηνεξτσ δο            φεςτιγεσΫ² ª ι ­ ±έ ½ νατθ®ποχ¨± ­ τ¬²© ª οςιηιξ®ψ « ²®° ª ¨± ­ τ© ª τ ª γοξτςομ®ψ « τ ª τ ª δεστιξατιοξ®ψ            φεςτιγεσΫ² ª ιέ     ½ νατθ®ποχ¨± ­ τ¬²© ª οςιηιξ®ω « ²®° ª ¨± ­ τ© ª τ ª γοξτςομ®ω « τ ª τ ª δεστιξατιοξ®ω            τ ½ τ « ±®° ― σεηνεξτσ        εξδ        φεςτιγεσΫ² ª ¨σεηνεξτσ « ±© ­ ±έ ½ δεστιξατιοξ®ψ        φεςτιγεσΫ² ª ¨σεηνεξτσ « ±©έ     ½ δεστιξατιοξ®ω        φεςτεψΒυζζες®βυζζεςίιδ ½ ημ®γςεατεΒυζζες¨©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ φεςτεψΒυζζες®βυζζεςίιδ©        ημ®βυζζεςΔατα¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ ¨σεηνεξτσ « ±© ª ²¬ φεςτιγεσ¬ ημ®ΣΤΑΤΙΓίΔÒΑΧ©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ °©    εξδ    ιξιτΒυζζες¨©    σετΔςαχΠςοπεςτω¨©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬φεςτεψΒυζζες®βυζζεςίιδ©    ημ®φεςτεψΑττςιβΠοιξτες¨ΓΓΓοξσταξτσ®ΦΕÒΤΕΨίΑΤΤÒΙΒίΠΟΣΙΤΙΟΞ¬ ²¬ ημ®ΖΜΟΑΤ¬ ζαμσε¬ °¬ °©    ημ®δςαχΑςςαωσ¨ημ®ΜΙΞΕίΣΤÒΙΠ ¬ °¬ σεηνεξτσ « ±©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬°©εξδζυξγτιοξ γγΔςαχΓυβιγΒεϊιες¨οςιηιξ¬ γοξτςομ±¬ γοξτςομ²¬ δεστιξατιοξ¬ σεηνεξτσ©    ιζ ξοτ μαϊωίιξιτ τθεξ        ςετυςξ    εξδ    μογαμ φεςτεψΒυζζες ½ ϋ ύ    μογαμ ζυξγτιοξ ιξιτΒυζζες¨©        μογαμ φεςτιγεσ ½ ϋ ύ        μογαμ τ ½ °        μογαμ ι ½ ±        ζος ι ½ ±¬ σεηνεξτσ δο            φεςτιγεσΫ² ª ι ­ ±έ ½ νατθ®ποχ¨± ­ τ¬³© ª οςιηιξ®ψ « ³®° ª νατθ®ποχ¨± ­ τ¬ ²© ª τ ª γοξτςομ±®ψ « ³®° ª ¨± ­ τ© ª τ ª τ ª γοξτςομ²®ψ « τ ª τ ª τ ª δεστιξατιοξ®ψ            φεςτιγεσΫ² ª ιέ     ½ νατθ®ποχ¨± ­ τ¬³© ª οςιηιξ®ω « ³®° ª νατθ®ποχ¨± ­ τ¬ ²© ª τ ª γοξτςομ±®ω « ³®° ª ¨± ­ τ© ª τ ª τ ª γοξτςομ²®ω « τ ª τ ª τ ª δεστιξατιοξ®ω            τ ½ τ « ±®° ― σεηνεξτσ        εξδ        φεςτιγεσΫ² ª ¨σεηνεξτσ « ±© ­ ±έ ½ δεστιξατιοξ®ψ        φεςτιγεσΫ² ª ¨σεηνεξτσ « ±©έ     ½ δεστιξατιοξ®ω        φεςτεψΒυζζες®βυζζεςίιδ ½ ημ®γςεατεΒυζζες¨©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ φεςτεψΒυζζες®βυζζεςίιδ©        ημ®βυζζεςΔατα¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ ¨σεηνεξτσ « ±© ª ²¬ φεςτιγεσ¬ ημ®ΣΤΑΤΙΓίΔÒΑΧ©        ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬ °©    εξδ    ιξιτΒυζζες¨©    σετΔςαχΠςοπεςτω¨©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬φεςτεψΒυζζες®βυζζεςίιδ©    ημ®φεςτεψΑττςιβΠοιξτες¨ΓΓΓοξσταξτσ®ΦΕÒΤΕΨίΑΤΤÒΙΒίΠΟΣΙΤΙΟΞ¬ ²¬ ημ®ΖΜΟΑΤ¬ ζαμσε¬ °¬ °©    ημ®δςαχΑςςαωσ¨ημ®ΜΙΞΕίΣΤÒΙΠ ¬ °¬ σεηνεξτσ « ±©    ημ®βιξδΒυζζες¨ημ®ΑÒÒΑΩίΒΥΖΖΕÒ¬°©εξδ
+
+local dp_initialized = false
+local dp_shader      = nil
+local dp_colorLocation = -1
+local dp_color = { 1.0, 1.0, 1.0, 1.0 }
+local dp_pointSizeLocation = -1
+local dp_pointSize = 1.0
+
+local SHADER_NAME_POSITION_U_COLOR = "ShaderPosition_uColor"
+
+local targetPlatform = cc.Application:getInstance():getTargetPlatform()
+
+local function lazy_init()
+    if not dp_initialized then
+        dp_shader = cc.ShaderCache:getInstance():getProgram(SHADER_NAME_POSITION_U_COLOR)
+        --dp_shader:retain()
+        if nil ~= dp_shader then
+            dp_colorLocation = gl.getUniformLocation( dp_shader:getProgram(), "u_color")
+            dp_pointSizeLocation = gl.getUniformLocation( dp_shader:getProgram(), "u_pointSize")
+            dp_Initialized = true
+        end
+    end
+
+    if nil == dp_shader then
+        print("Error:dp_shader is nil!")
+        return false
+    end
+
+    return true
+end
+
+local function setDrawProperty()
+    gl.glEnableVertexAttribs( CCConstants.VERTEX_ATTRIB_FLAG_POSITION )
+    dp_shader:use()
+    dp_shader:setUniformsForBuiltins()
+    dp_shader:setUniformLocationWith4fv(dp_colorLocation, dp_color, 1)
+end
+
+function ccDrawInit()
+    lazy_init()
+end
+
+function ccDrawFree()
+    dp_initialized = false
+end
+
+function ccDrawColor4f(r,g,b,a)
+    dp_color[1] = r
+    dp_color[2] = g
+    dp_color[3] = b
+    dp_color[4] = a
+end
+
+function ccPointSize(pointSize)
+    dp_pointSize = pointSize * cc.Director:getInstance():getContentScaleFactor()
+end
+
+function ccDrawColor4B(r,g,b,a)
+    dp_color[1] = r / 255.0
+    dp_color[2] = g / 255.0
+    dp_color[3] = b / 255.0
+    dp_color[4] = a / 255.0
+end
+
+function ccDrawPoint(point)
+    if not lazy_init() then
+        return
+    end
+
+    local vertexBuffer = { }
+
+    local function initBuffer()
+        vertexBuffer.buffer_id = gl.createBuffer()
+        gl.bindBuffer(gl.ARRAY_BUFFER,vertexBuffer.buffer_id)
+        local vertices = { point.x,point.y}
+        gl.bufferData(gl.ARRAY_BUFFER,2,vertices,gl.STATIC_DRAW)
+        gl.bindBuffer(gl.ARRAY_BUFFER, 0)
+    end
+
+    initBuffer()
+
+    setDrawProperty()
+
+    dp_shader:setUniformLocationWith1f(dp_pointSizeLocation, dp_pointSize)
+
+    gl.bindBuffer(gl.ARRAY_BUFFER,vertexBuffer.buffer_id)
+    gl.vertexAttribPointer(CCConstants.VERTEX_ATTRIB_POSITION, 2, gl.FLOAT, false, 0, 0)
+    gl.drawArrays(gl.POINTS,0,1)
+    gl.bindBuffer(gl.ARRAY_BUFFER,0)
+end
+
+function ccDrawPoints(points,numOfPoint)
+    if not lazy_init() then
+        return
+    end
+
+    local vertexBuffer = {}
+    local i = 1
+
+    local function initBuffer()
+        vertexBuffer.buffer_id = gl.createBuffer()
+        gl.bindBuffer(gl.ARRAY_BUFFER, vertexBuffer.buffer_id)
+        local vertices = {}
+        for i = 1, numOfPoint do
+            vertices[2 * i - 1] = points[i].x
+            vertices[2 * i]     = points[i].y
+        end
+        gl.bufferData(gl.ARRAY_BUFFER, numOfPoint * 2, vertices, gl.STATIC_DRAW)
+        gl.bindBuffer(gl.ARRAY_BUFFER, 0)
+    end
+
+    initBuffer()
+
+    setDrawProperty()
+
+    dp_shader:setUniformLocationWith1f(dp_pointSizeLocation, dp_pointSize)
+
+    gl.bindBuffer(gl.ARRAY_BUFFER,vertexBuffer.buffer_id)
+    gl.vertexAttribPointer(CCConstants.VERTEX_ATTRIB_POSITION, 2, gl.FLOAT, false, 0, 0)
+    gl.drawArrays(gl.POINTS,0,numOfPoint)
+    gl.bindBuffer(gl.ARRAY_BUFFER,0)
+end
+
+function ccDrawLine(origin,destination)
+    if not lazy_init() then
+        return
+    end
+
+    local vertexBuffer = {}
+
+    local function initBuffer()
+        vertexBuffer.buffer_id = gl.createBuffer()
+        gl.bindBuffer(gl.ARRAY_BUFFER, vertexBuffer.buffer_id)
+        local vertices = { origin.x, origin.y, destination.x, destination.y}
+        gl.bufferData(gl.ARRAY_BUFFER,4,vertices,gl.STATIC_DRAW)
+        gl.bindBuffer(gl.ARRAY_BUFFER, 0)
+    end
+
+    initBuffer()
+
+    setDrawProperty()
+
+    gl.bindBuffer(gl.ARRAY_BUFFER,vertexBuffer.buffer_id)
+    gl.vertexAttribPointer(CCConstants.VERTEX_ATTRIB_POSITION, 2, gl.FLOAT, false, 0, 0)
+    gl.drawArrays(gl.LINES ,0,2)
+    gl.bindBuffer(gl.ARRAY_BUFFER,0)
+end
+
+function ccDrawPoly(points,numOfPoints,closePolygon)
+    if not lazy_init() then
+        return
+    end
+
+    local vertexBuffer = {}
+    local i = 1
+
+    local function initBuffer()
+        vertexBuffer.buffer_id = gl.createBuffer()
+        gl.bindBuffer(gl.ARRAY_BUFFER, vertexBuffer.buffer_id)
+        local vertices = {}
+        for i = 1, numOfPoints do
+            vertices[2 * i - 1] = points[i].x
+            vertices[2 * i]     = points[i].y
+        end
+        gl.bufferData(gl.ARRAY_BUFFER, numOfPoints * 2, vertices, gl.STATIC_DRAW)
+        gl.bindBuffer(gl.ARRAY_BUFFER, 0)
+    end
+
+    initBuffer()
+
+    setDrawProperty()
+
+    gl.bindBuffer(gl.ARRAY_BUFFER,vertexBuffer.buffer_id)
+    gl.vertexAttribPointer(CCConstants.VERTEX_ATTRIB_POSITION, 2, gl.FLOAT, false, 0, 0)
+    if closePolygon then
+        gl.drawArrays(gl.LINE_LOOP , 0, numOfPoints)
+    else
+        gl.drawArrays(gl.LINE_STRIP, 0, numOfPoints)
+    end
+    gl.bindBuffer(gl.ARRAY_BUFFER,0)
+end
+
+function ccDrawSolidPoly(points,numOfPoints,color)
+    if not lazy_init() then
+        return
+    end
+
+    local vertexBuffer = {}
+    local i = 1
+
+    local function initBuffer()
+        vertexBuffer.buffer_id = gl.createBuffer()
+        gl.bindBuffer(gl.ARRAY_BUFFER, vertexBuffer.buffer_id)
+        local vertices = {}
+        for i = 1, numOfPoints do
+            vertices[2 * i - 1] = points[i].x
+            vertices[2 * i]     = points[i].y
+
+        end
+        gl.bufferData(gl.ARRAY_BUFFER, numOfPoints * 2, vertices, gl.STATIC_DRAW)
+        gl.bindBuffer(gl.ARRAY_BUFFER, 0)
+    end
+
+    initBuffer()
+
+    gl.glEnableVertexAttribs( CCConstants.VERTEX_ATTRIB_FLAG_POSITION )
+    dp_shader:use()
+    dp_shader:setUniformsForBuiltins()
+    dp_shader:setUniformLocationWith4fv(dp_colorLocation, color, 1)
+
+    gl.bindBuffer(gl.ARRAY_BUFFER,vertexBuffer.buffer_id)
+    gl.vertexAttribPointer(CCConstants.VERTEX_ATTRIB_POSITION, 2, gl.FLOAT, false, 0, 0)
+    gl.drawArrays(gl.TRIANGLE_FAN , 0, numOfPoints)
+    gl.bindBuffer(gl.ARRAY_BUFFER,0)
+end
+
+function ccDrawRect(origin,destination)
+    ccDrawLine(CCPoint:__call(origin.x, origin.y), CCPoint:__call(destination.x, origin.y))
+    ccDrawLine(CCPoint:__call(destination.x, origin.y), CCPoint:__call(destination.x, destination.y))
+    ccDrawLine(CCPoint:__call(destination.x, destination.y), CCPoint:__call(origin.x, destination.y))
+    ccDrawLine(CCPoint:__call(origin.x, destination.y), CCPoint:__call(origin.x, origin.y))
+end
+
+function ccDrawSolidRect( origin,destination,color )
+    local vertices = { origin, CCPoint:__call(destination.x, origin.y) , destination, CCPoint:__call(origin.x, destination.y) }
+    ccDrawSolidPoly(vertices,4,color)
+end
+
+function ccDrawCircleScale( center, radius, angle, segments,drawLineToCenter,scaleX,scaleY)
+    if not lazy_init() then
+        return
+    end
+
+    local additionalSegment = 1
+    if drawLineToCenter then
+        additionalSegment = additionalSegment + 1
+    end
+
+    local vertexBuffer = { }
+
+    local function initBuffer()
+        local coef = 2.0 * math.pi / segments
+        local i = 1
+        local vertices = {}
+        vertexBuffer.buffer_id = gl.createBuffer()
+        gl.bindBuffer(gl.ARRAY_BUFFER, vertexBuffer.buffer_id)
+        for i = 1, segments + 1 do
+            local rads = (i - 1) * coef
+            local j    = radius * math.cos(rads + angle) * scaleX + center.x
+            local k    = radius * math.sin(rads + angle) * scaleY + center.y
+            vertices[i * 2 - 1] = j
+            vertices[i * 2]     = k
+         end
+        vertices[(segments + 2) * 2 - 1] = center.x
+        vertices[(segments + 2) * 2]     = center.y
+
+        gl.bufferData(gl.ARRAY_BUFFER, (segments + 2) * 2, vertices, gl.STATIC_DRAW)
+        gl.bindBuffer(gl.ARRAY_BUFFER, 0)
+    end
+
+    initBuffer()
+
+    setDrawProperty()
+
+    gl.bindBuffer(gl.ARRAY_BUFFER,vertexBuffer.buffer_id)
+    gl.vertexAttribPointer(CCConstants.VERTEX_ATTRIB_POSITION, 2, gl.FLOAT, false, 0, 0)
+    gl.drawArrays(gl.LINE_STRIP , 0, segments + additionalSegment)
+    gl.bindBuffer(gl.ARRAY_BUFFER,0)
+end
+
+function ccDrawCircle(center, radius, angle, segments, drawLineToCenter)
+    ccDrawCircleScale(center, radius, angle, segments, drawLineToCenter, 1.0, 1.0)
+end
+
+function ccDrawSolidCircle(center, radius, angle, segments,scaleX,scaleY)
+    if not lazy_init() then
+        return
+    end
+
+    local vertexBuffer = { }
+
+    local function initBuffer()
+        local coef = 2.0 * math.pi / segments
+        local i = 1
+        local vertices = {}
+        vertexBuffer.buffer_id = gl.createBuffer()
+        gl.bindBuffer(gl.ARRAY_BUFFER, vertexBuffer.buffer_id)
+        for i = 1, segments + 1 do
+            local rads = (i - 1) * coef
+            local j    = radius * math.cos(rads + angle) * scaleX + center.x
+            local k    = radius * math.sin(rads + angle) * scaleY + center.y
+            vertices[i * 2 - 1] = j
+            vertices[i * 2]     = k
+         end
+        vertices[(segments + 2) * 2 - 1] = center.x
+        vertices[(segments + 2) * 2]     = center.y
+
+        gl.bufferData(gl.ARRAY_BUFFER, (segments + 2) * 2, vertices, gl.STATIC_DRAW)
+        gl.bindBuffer(gl.ARRAY_BUFFER, 0)
+    end
+
+    initBuffer()
+
+    setDrawProperty()
+
+    gl.bindBuffer(gl.ARRAY_BUFFER,vertexBuffer.buffer_id)
+    gl.vertexAttribPointer(CCConstants.VERTEX_ATTRIB_POSITION, 2, gl.FLOAT, false, 0, 0)
+    gl.drawArrays(gl.TRIANGLE_FAN , 0, segments + 1)
+    gl.bindBuffer(gl.ARRAY_BUFFER,0)
+end
+
+function ccDrawQuadBezier(origin, control, destination, segments)
+    if not lazy_init() then
+        return
+    end
+
+    local vertexBuffer = { }
+
+    local function initBuffer()
+        local vertices = { }
+        local i = 1
+        local t = 0.0
+
+        for i = 1, segments do
+            vertices[2 * i - 1] = math.pow(1 - t,2) * origin.x + 2.0 * (1 - t) * t * control.x + t * t * destination.x
+            vertices[2 * i]     = math.pow(1 - t,2) * origin.y + 2.0 * (1 - t) * t * control.y + t * t * destination.y
+            t = t + 1.0 / segments
+        end
+
+        vertices[2 * (segments + 1) - 1] = destination.x
+        vertices[2 * (segments + 1)]     = destination.y
+
+        vertexBuffer.buffer_id = gl.createBuffer()
+        gl.bindBuffer(gl.ARRAY_BUFFER, vertexBuffer.buffer_id)
+        gl.bufferData(gl.ARRAY_BUFFER, (segments + 1) * 2, vertices, gl.STATIC_DRAW)
+        gl.bindBuffer(gl.ARRAY_BUFFER, 0)
+    end
+
+    initBuffer()
+
+    setDrawProperty()
+
+    gl.bindBuffer(gl.ARRAY_BUFFER,vertexBuffer.buffer_id)
+    gl.vertexAttribPointer(CCConstants.VERTEX_ATTRIB_POSITION, 2, gl.FLOAT, false, 0, 0)
+    gl.drawArrays(gl.LINE_STRIP , 0, segments + 1)
+    gl.bindBuffer(gl.ARRAY_BUFFER,0)
+end
+
+function ccDrawCubicBezier(origin, control1, control2, destination, segments)
+    if not lazy_init then
+        return
+    end
+
+    local vertexBuffer = { }
+
+    local function initBuffer()
+        local vertices = { }
+        local t = 0
+        local i = 1
+
+        for i = 1, segments do
+            vertices[2 * i - 1] = math.pow(1 - t,3) * origin.x + 3.0 * math.pow(1 - t, 2) * t * control1.x + 3.0 * (1 - t) * t * t * control2.x + t * t * t * destination.x
+            vertices[2 * i]     = math.pow(1 - t,3) * origin.y + 3.0 * math.pow(1 - t, 2) * t * control1.y + 3.0 * (1 - t) * t * t * control2.y + t * t * t * destination.y
+            t = t + 1.0 / segments
+        end
+
+        vertices[2 * (segments + 1) - 1] = destination.x
+        vertices[2 * (segments + 1)]     = destination.y
+
+        vertexBuffer.buffer_id = gl.createBuffer()
+        gl.bindBuffer(gl.ARRAY_BUFFER, vertexBuffer.buffer_id)
+        gl.bufferData(gl.ARRAY_BUFFER, (segments + 1) * 2, vertices, gl.STATIC_DRAW)
+        gl.bindBuffer(gl.ARRAY_BUFFER, 0)
+    end
+
+    initBuffer()
+
+    setDrawProperty()
+
+    gl.bindBuffer(gl.ARRAY_BUFFER,vertexBuffer.buffer_id)
+    gl.vertexAttribPointer(CCConstants.VERTEX_ATTRIB_POSITION, 2, gl.FLOAT, false, 0, 0)
+    gl.drawArrays(gl.LINE_STRIP , 0, segments + 1)
+    gl.bindBuffer(gl.ARRAY_BUFFER,0)
+end

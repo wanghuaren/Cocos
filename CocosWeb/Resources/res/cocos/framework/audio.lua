@@ -1,1 +1,206 @@
-­­ÛÛŠŠÃïðùòéçèô ¨ã© ²°±±­²°±´ ãèõëïîç­éîã®ãïíŠŠÐåòíéóóéïî éó èåòåâù çòáîôåä¬ æòåå ïæ ãèáòçå¬ ôï áîù ðåòóïî ïâôáéîéîç á ãïðùŠïæ ôèéó óïæô÷áòå áîä áóóïãéáôåä äïãõíåîôáôéïî æéìåó ¨ôèå ¢Óïæô÷áòå¢©¬ ôï äåáìŠéî ôèå Óïæô÷áòå ÷éôèïõô òåóôòéãôéïî¬ éîãìõäéîç ÷éôèïõô ìéíéôáôéïî ôèå òéçèôóŠôï õóå¬ ãïðù¬ íïäéæù¬ íåòçå¬ ðõâìéóè¬ äéóôòéâõôå¬ óõâìéãåîóå¬ áîä¯ïò óåììŠãïðéåó ïæ ôèå Óïæô÷áòå¬ áîä ôï ðåòíéô ðåòóïîó ôï ÷èïí ôèå Óïæô÷áòå éóŠæõòîéóèåä ôï äï óï¬ óõâêåãô ôï ôèå æïììï÷éîç ãïîäéôéïîóºŠŠÔèå áâïöå ãïðùòéçèô îïôéãå áîä ôèéó ðåòíéóóéïî îïôéãå óèáìì âå éîãìõäåä éîŠáìì ãïðéåó ïò óõâóôáîôéáì ðïòôéïîó ïæ ôèå Óïæô÷áòå®ŠŠÔÈÅ ÓÏÆÔ×ÁÒÅ ÉÓ ÐÒÏÖÉÄÅÄ ¢ÁÓ ÉÓ¢¬ ×ÉÔÈÏÕÔ ×ÁÒÒÁÎÔÙ ÏÆ ÁÎÙ ËÉÎÄ¬ ÅØÐÒÅÓÓ ÏÒŠÉÍÐÌÉÅÄ¬ ÉÎÃÌÕÄÉÎÇ ÂÕÔ ÎÏÔ ÌÉÍÉÔÅÄ ÔÏ ÔÈÅ ×ÁÒÒÁÎÔÉÅÓ ÏÆ ÍÅÒÃÈÁÎÔÁÂÉÌÉÔÙ¬ŠÆÉÔÎÅÓÓ ÆÏÒ Á ÐÁÒÔÉÃÕÌÁÒ ÐÕÒÐÏÓÅ ÁÎÄ ÎÏÎÉÎÆÒÉÎÇÅÍÅÎÔ® ÉÎ ÎÏ ÅÖÅÎÔ ÓÈÁÌÌ ÔÈÅŠÁÕÔÈÏÒÓ ÏÒ ÃÏÐÙÒÉÇÈÔ ÈÏÌÄÅÒÓ ÂÅ ÌÉÁÂÌÅ ÆÏÒ ÁÎÙ ÃÌÁÉÍ¬ ÄÁÍÁÇÅÓ ÏÒ ÏÔÈÅÒŠÌÉÁÂÉÌÉÔÙ¬ ×ÈÅÔÈÅÒ ÉÎ ÁÎ ÁÃÔÉÏÎ ÏÆ ÃÏÎÔÒÁÃÔ¬ ÔÏÒÔ ÏÒ ÏÔÈÅÒ×ÉÓÅ¬ ÁÒÉÓÉÎÇ ÆÒÏÍ¬ŠÏÕÔ ÏÆ ÏÒ ÉÎ ÃÏÎÎÅÃÔÉÏÎ ×ÉÔÈ ÔÈÅ ÓÏÆÔ×ÁÒÅ ÏÒ ÔÈÅ ÕÓÅ ÏÒ ÏÔÈÅÒ ÄÅÁÌÉÎÇÓ ÉÎŠÔÈÅ ÓÏÆÔ×ÁÒÅ®ŠŠÝÝŠŠìïãáì áõäéï ½ ûýŠŠìïãáì åîçéîå ½ ãã®ÓéíðìåÁõäéïÅîçéîåºçåôÉîóôáîãå¨©ŠŠæõîãôéïî áõäéï®çåôÍõóéãÖïìõíå¨©Š    ìïãáì öïìõíå ½ åîçéîåºçåôÍõóéãÖïìõíå¨©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ çåôÍõóéãÖïìõíå¨© ­ öïìõíåº ¥°®²æ¢¬ öïìõíå©Š    åîäŠ    òåôõòî öïìõíåŠåîäŠŠæõîãôéïî áõäéï®óåôÍõóéãÖïìõíå¨öïìõíå©Š    öïìõíå ½ ãèåãëîõíâåò¨öïìõíå©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ óåôÍõóéãÖïìõíå¨© ­ öïìõíåº ¥°®²æ¢¬ öïìõíå©Š    åîäŠ    åîçéîåºóåôÍõóéãÖïìõíå¨öïìõíå©ŠåîäŠŠæõîãôéïî áõäéï®ðòåìïáäÍõóéã¨æéìåîáíå©Š    áóóåòô¨æéìåîáíå¬ ¢áõäéï®ðòåìïáäÍõóéã¨© ­ éîöáìéä æéìåîáíå¢©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ ðòåìïáäÍõóéã¨© ­ æéìåîáíåº ¥ó¢¬ ôïóôòéîç¨æéìåîáíå©©Š    åîäŠ    åîçéîåºðòåìïáäÍõóéã¨æéìåîáíå©ŠåîäŠŠæõîãôéïî áõäéï®ðìáùÍõóéã¨æéìåîáíå¬ éóÌïïð©Š    áóóåòô¨æéìåîáíå¬ ¢áõäéï®ðìáùÍõóéã¨© ­ éîöáìéä æéìåîáíå¢©Š    éæ ôùðå¨éóÌïïð© þ½ ¢âïïìåáî¢ ôèåî éóÌïïð ½ ôòõå åîäŠŠ    áõäéï®óôïðÍõóéã¨©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ ðìáùÍõóéã¨© ­ æéìåîáíåº ¥ó¬ éóÌïïðº ¥ó¢¬ ôïóôòéîç¨æéìåîáíå©¬ ôïóôòéîç¨éóÌïïð©©Š    åîäŠ    åîçéîåºðìáùÍõóéã¨æéìåîáíå¬ éóÌïïð©ŠåîäŠŠæõîãôéïî áõäéï®óôïðÍõóéã¨éóÒåìåáóåÄáôá©Š    éóÒåìåáóåÄáôá ½ ãèåãëâïïì¨éóÒåìåáóåÄáôá©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ óôïðÍõóéã¨© ­ éóÒåìåáóåÄáôáº ¥ó¢¬ ôïóôòéîç¨éóÒåìåáóåÄáôá©©Š    åîäŠ    åîçéîåºóôïðÍõóéã¨éóÒåìåáóåÄáôá©ŠåîäŠŠæõîãôéïî áõäéï®ðáõóåÍõóéã¨©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ ðáõóåÍõóéã¨©¢©Š    åîäŠ    åîçéîåºðáõóåÍõóéã¨©ŠåîäŠŠæõîãôéïî áõäéï®òåóõíåÍõóéã¨©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ òåóõíåÍõóéã¨©¢©Š    åîäŠ    åîçéîåºòåóõíåÍõóéã¨©ŠåîäŠŠæõîãôéïî áõäéï®òå÷éîäÍõóéã¨©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ òå÷éîäÍõóéã¨©¢©Š    åîäŠ    åîçéîåºòå÷éîäÍõóéã¨©ŠåîäŠŠæõîãôéïî áõäéï®éóÍõóéãÐìáùéîç¨©Š    ìïãáì òåô ½ åîçéîåºéóÍõóéãÐìáùéîç¨©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ éóÍõóéãÐìáùéîç¨© ­ òåôº ¥ó¢¬ ôïóôòéîç¨òåô©©Š    åîäŠ    òåôõòî òåôŠåîäŠŠæõîãôéïî áõäéï®çåôÓïõîäóÖïìõíå¨©Š    ìïãáì öïìõíå ½ åîçéîåºçåôÅææåãôóÖïìõíå¨©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ çåôÓïõîäóÖïìõíå¨© ­ öïìõíåº ¥°®±æ¢¬ öïìõíå©Š    åîäŠ    òåôõòî öïìõíåŠåîäŠŠæõîãôéïî áõäéï®óåôÓïõîäóÖïìõíå¨öïìõíå©Š    öïìõíå ½ ãèåãëîõíâåò¨öïìõíå©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ óåôÓïõîäóÖïìõíå¨© ­ öïìõíåº ¥°®±æ¢¬ öïìõíå©Š    åîäŠ    åîçéîåºóåôÅææåãôóÖïìõíå¨öïìõíå©ŠåîäŠŠæõîãôéïî áõäéï®ðìáùÓïõîä¨æéìåîáíå¬ éóÌïïð©Š    éæ îïô æéìåîáíå ôèåîŠ        ðòéîôÅòòïò¨¢áõäéï®ðìáùÓïõîä¨© ­ éîöáìéä æéìåîáíå¢©Š        òåôõòîŠ    åîäŠ    éæ ôùðå¨éóÌïïð© þ½ ¢âïïìåáî¢ ôèåî éóÌïïð ½ æáìóå åîäŠ    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ ðìáùÓïõîä¨© ­ æéìåîáíåº ¥ó¬ éóÌïïðº ¥ó¢¬ ôïóôòéîç¨æéìåîáíå©¬ ôïóôòéîç¨éóÌïïð©©Š    åîäŠ    òåôõòî åîçéîåºðìáùÅææåãô¨æéìåîáíå¬ éóÌïïð©ŠåîäŠŠæõîãôéïî áõäéï®ðáõóåÓïõîä¨èáîäìå©Š    éæ îïô èáîäìå ôèåîŠ        ðòéîôÅòòïò¨¢áõäéï®ðáõóåÓïõîä¨© ­ éîöáìéä èáîäìå¢©Š        òåôõòîŠ    åîäŠ    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ ðáõóåÓïõîä¨© ­ èáîäìåº ¥ó¢¬ ôïóôòéîç¨èáîäìå©©Š    åîäŠ    åîçéîåºðáõóåÅææåãô¨èáîäìå©ŠåîäŠŠæõîãôéïî áõäéï®ðáõóåÁììÓïõîäó¨©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ ðáõóåÁììÓïõîäó¨©¢©Š    åîäŠ    åîçéîåºðáõóåÁììÅææåãôó¨©ŠåîäŠŠæõîãôéïî áõäéï®òåóõíåÓïõîä¨èáîäìå©Š    éæ îïô èáîäìå ôèåîŠ        ðòéîôÅòòïò¨¢áõäéï®òåóõíåÓïõîä¨© ­ éîöáìéä èáîäìå¢©Š        òåôõòîŠ    åîäŠ    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ òåóõíåÓïõîä¨© ­ èáîäìåº ¥ó¢¬ ôïóôòéîç¨èáîäìå©©Š    åîäŠ    åîçéîåºòåóõíåÅææåãô¨èáîäìå©ŠåîäŠŠæõîãôéïî áõäéï®òåóõíåÁììÓïõîäó¨©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ òåóõíåÁììÓïõîäó¨©¢©Š    åîäŠ    åîçéîåºòåóõíåÁììÅææåãôó¨©ŠåîäŠŠæõîãôéïî áõäéï®óôïðÓïõîä¨èáîäìå©Š    éæ îïô èáîäìå ôèåîŠ        ðòéîôÅòòïò¨¢áõäéï®óôïðÓïõîä¨© ­ éîöáìéä èáîäìå¢©Š        òåôõòîŠ    åîäŠ    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ óôïðÓïõîä¨© ­ èáîäìåº ¥ó¢¬ ôïóôòéîç¨èáîäìå©©Š    åîäŠ    åîçéîåºóôïðÅææåãô¨èáîäìå©ŠåîäŠŠæõîãôéïî áõäéï®óôïðÁììÓïõîäó¨©Š    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ óôïðÁììÓïõîäó¨©¢©Š    åîäŠ    åîçéîåºóôïðÁììÅææåãôó¨©ŠåîäŠáõäéï®óôïðÁììÅææåãôó ½ áõäéï®óôïðÁììÓïõîäóŠŠæõîãôéïî áõäéï®ðòåìïáäÓïõîä¨æéìåîáíå©Š    éæ îïô æéìåîáíå ôèåîŠ        ðòéîôÅòòïò¨¢áõäéï®ðòåìïáäÓïõîä¨© ­ éîöáìéä æéìåîáíå¢©Š        òåôõòîŠ    åîäŠ    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ ðòåìïáäÓïõîä¨© ­ æéìåîáíåº ¥ó¢¬ ôïóôòéîç¨æéìåîáíå©©Š    åîäŠ    åîçéîåºðòåìïáäÅææåãô¨æéìåîáíå©ŠåîäŠŠæõîãôéïî áõäéï®õîìïáäÓïõîä¨æéìåîáíå©Š    éæ îïô æéìåîáíå ôèåîŠ        ðòéîôÅòòïò¨¢áõäéï®õîìïáäÓïõîä¨© ­ éîöáìéä æéìåîáíå¢©Š        òåôõòîŠ    åîäŠ    éæ ÄÅÂÕÇ ¾ ± ôèåîŠ        ðòéîôæ¨¢ÛáõäéïÝ õîìïáäÓïõîä¨© ­ æéìåîáíåº ¥ó¢¬ ôïóôòéîç¨æéìåîáíå©©Š    åîäŠ    åîçéîåºõîìïáäÅææåãô¨æéìåîáíå©ŠåîäŠŠòåôõòî áõäéïŠ
+--[[
+
+Copyright (c) 2011-2014 chukong-inc.com
+
+Permission is hereby granted, free of charge, to any person obtaining a copy
+of this software and associated documentation files (the "Software"), to deal
+in the Software without restriction, including without limitation the rights
+to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
+copies of the Software, and to permit persons to whom the Software is
+furnished to do so, subject to the following conditions:
+
+The above copyright notice and this permission notice shall be included in
+all copies or substantial portions of the Software.
+
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR
+IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY,
+FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE
+AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER
+LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
+OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN
+THE SOFTWARE.
+
+]]
+
+local audio = {}
+
+local engine = cc.SimpleAudioEngine:getInstance()
+
+function audio.getMusicVolume()
+    local volume = engine:getMusicVolume()
+    if DEBUG > 1 then
+        printf("[audio] getMusicVolume() - volume: %0.2f", volume)
+    end
+    return volume
+end
+
+function audio.setMusicVolume(volume)
+    volume = checknumber(volume)
+    if DEBUG > 1 then
+        printf("[audio] setMusicVolume() - volume: %0.2f", volume)
+    end
+    engine:setMusicVolume(volume)
+end
+
+function audio.preloadMusic(filename)
+    assert(filename, "audio.preloadMusic() - invalid filename")
+    if DEBUG > 1 then
+        printf("[audio] preloadMusic() - filename: %s", tostring(filename))
+    end
+    engine:preloadMusic(filename)
+end
+
+function audio.playMusic(filename, isLoop)
+    assert(filename, "audio.playMusic() - invalid filename")
+    if type(isLoop) ~= "boolean" then isLoop = true end
+
+    audio.stopMusic()
+    if DEBUG > 1 then
+        printf("[audio] playMusic() - filename: %s, isLoop: %s", tostring(filename), tostring(isLoop))
+    end
+    engine:playMusic(filename, isLoop)
+end
+
+function audio.stopMusic(isReleaseData)
+    isReleaseData = checkbool(isReleaseData)
+    if DEBUG > 1 then
+        printf("[audio] stopMusic() - isReleaseData: %s", tostring(isReleaseData))
+    end
+    engine:stopMusic(isReleaseData)
+end
+
+function audio.pauseMusic()
+    if DEBUG > 1 then
+        printf("[audio] pauseMusic()")
+    end
+    engine:pauseMusic()
+end
+
+function audio.resumeMusic()
+    if DEBUG > 1 then
+        printf("[audio] resumeMusic()")
+    end
+    engine:resumeMusic()
+end
+
+function audio.rewindMusic()
+    if DEBUG > 1 then
+        printf("[audio] rewindMusic()")
+    end
+    engine:rewindMusic()
+end
+
+function audio.isMusicPlaying()
+    local ret = engine:isMusicPlaying()
+    if DEBUG > 1 then
+        printf("[audio] isMusicPlaying() - ret: %s", tostring(ret))
+    end
+    return ret
+end
+
+function audio.getSoundsVolume()
+    local volume = engine:getEffectsVolume()
+    if DEBUG > 1 then
+        printf("[audio] getSoundsVolume() - volume: %0.1f", volume)
+    end
+    return volume
+end
+
+function audio.setSoundsVolume(volume)
+    volume = checknumber(volume)
+    if DEBUG > 1 then
+        printf("[audio] setSoundsVolume() - volume: %0.1f", volume)
+    end
+    engine:setEffectsVolume(volume)
+end
+
+function audio.playSound(filename, isLoop)
+    if not filename then
+        printError("audio.playSound() - invalid filename")
+        return
+    end
+    if type(isLoop) ~= "boolean" then isLoop = false end
+    if DEBUG > 1 then
+        printf("[audio] playSound() - filename: %s, isLoop: %s", tostring(filename), tostring(isLoop))
+    end
+    return engine:playEffect(filename, isLoop)
+end
+
+function audio.pauseSound(handle)
+    if not handle then
+        printError("audio.pauseSound() - invalid handle")
+        return
+    end
+    if DEBUG > 1 then
+        printf("[audio] pauseSound() - handle: %s", tostring(handle))
+    end
+    engine:pauseEffect(handle)
+end
+
+function audio.pauseAllSounds()
+    if DEBUG > 1 then
+        printf("[audio] pauseAllSounds()")
+    end
+    engine:pauseAllEffects()
+end
+
+function audio.resumeSound(handle)
+    if not handle then
+        printError("audio.resumeSound() - invalid handle")
+        return
+    end
+    if DEBUG > 1 then
+        printf("[audio] resumeSound() - handle: %s", tostring(handle))
+    end
+    engine:resumeEffect(handle)
+end
+
+function audio.resumeAllSounds()
+    if DEBUG > 1 then
+        printf("[audio] resumeAllSounds()")
+    end
+    engine:resumeAllEffects()
+end
+
+function audio.stopSound(handle)
+    if not handle then
+        printError("audio.stopSound() - invalid handle")
+        return
+    end
+    if DEBUG > 1 then
+        printf("[audio] stopSound() - handle: %s", tostring(handle))
+    end
+    engine:stopEffect(handle)
+end
+
+function audio.stopAllSounds()
+    if DEBUG > 1 then
+        printf("[audio] stopAllSounds()")
+    end
+    engine:stopAllEffects()
+end
+audio.stopAllEffects = audio.stopAllSounds
+
+function audio.preloadSound(filename)
+    if not filename then
+        printError("audio.preloadSound() - invalid filename")
+        return
+    end
+    if DEBUG > 1 then
+        printf("[audio] preloadSound() - filename: %s", tostring(filename))
+    end
+    engine:preloadEffect(filename)
+end
+
+function audio.unloadSound(filename)
+    if not filename then
+        printError("audio.unloadSound() - invalid filename")
+        return
+    end
+    if DEBUG > 1 then
+        printf("[audio] unloadSound() - filename: %s", tostring(filename))
+    end
+    engine:unloadEffect(filename)
+end
+
+return audio

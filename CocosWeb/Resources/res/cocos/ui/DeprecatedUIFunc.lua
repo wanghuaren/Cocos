@@ -1,1 +1,183 @@
-ιζ ξιμ ½½ γγυι τθεξ    ςετυςξεξδ­­τιπμογαμ ζυξγτιοξ δεπςεγατεδΤιπ¨ομδίξανε¬ξεχίξανε©    πςιξτ¨Άάξªªªªªªªªªª άξΆ®®ομδίξανε®®Ά χασ δεπςεγατεδ πμεασε υσε Ά®® ξεχίξανε ®® Ά ιξστεαδ®άξªªªªªªªªªªΆ©εξδ­­ζυξγτιοξσ οζ γγυι®Τεψτ χιμμ βε δεπςεγατεδ βεηιξμογαμ ΤεψτΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΤεψτΔεπςεγατεδ®σετΤεψτ¨σεμζ¬ στς©    δεπςεγατεδΤιπ¨Άγγυι®ΤεψτΊσετΤεψτΆ¬Άγγυι®ΤεψτΊσετΣτςιξηΆ©    ςετυςξ σεμζΊσετΣτςιξη¨στς©εξδγγυι®Τεψτ®σετΤεψτ ½ ΤεψτΔεπςεγατεδ®σετΤεψτζυξγτιοξ ΤεψτΔεπςεγατεδ®ηετΣτςιξηΦαμυε¨σεμζ©    δεπςεγατεδΤιπ¨Άγγυι®ΤεψτΊηετΣτςιξηΦαμυεΆ¬Άγγυι®ΤεψτΊηετΣτςιξηΆ©    ςετυςξ σεμζΊηετΣτςιξη¨©εξδγγυι®Τεψτ®ηετΣτςιξηΦαμυε ½ ΤεψτΔεπςεγατεδ®ηετΣτςιξηΦαμυε­­ζυξγτιοξσ οζ γγυι®Τεψτ χιμμ βε δεπςεγατεδ βεηιξ­­ζυξγτιοξσ οζ γγυι®ΤεψτΑτμασ χιμμ βε δεπςεγατεδ βεηιξμογαμ ΤεψτΑτμασΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΤεψτΑτμασΔεπςεγατεδ®σετΣτςιξηΦαμυε¨σεμζ¬ στς©    δεπςεγατεδΤιπ¨Άγγυι®ΤεψτΑτμασΊσετΣτςιξηΦαμυεΆ¬Άγγυι®ΤεψτΑτμασΊσετΣτςιξηΆ©    ςετυςξ σεμζΊσετΣτςιξη¨στς©εξδγγυι®ΤεψτΑτμασ®σετΣτςιξηΦαμυε ½ ΤεψτΑτμασΔεπςεγατεδ®σετΣτςιξηΦαμυεζυξγτιοξ ΤεψτΑτμασΔεπςεγατεδ®ηετΣτςιξηΦαμυε¨σεμζ©    δεπςεγατεδΤιπ¨Άγγυι®ΤεψτΑτμασΊηετΣτςιξηΦαμυεΆ¬Άγγυι®ΤεψτΑτμασΊηετΣτςιξηΆ©    ςετυςξ σεμζΊηετΣτςιξη¨©εξδγγυι®ΤεψτΑτμασ®ηετΣτςιξηΦαμυε ½ ΤεψτΑτμασΔεπςεγατεδ®ηετΣτςιξηΦαμυε­­ζυξγτιοξσ οζ γγυι®ΤεψτΑτμασ χιμμ βε δεπςεγατεδ βεηιξ­­ζυξγτιοξσ οζ γγυι®ΤεψτΒΝΖοξτ χιμμ βε δεπςεγατεδ βεηιξμογαμ ΤεψτΒΝΖοξτΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΤεψτΒΝΖοξτΔεπςεγατεδ®σετΤεψτ¨σεμζ¬ στς©    δεπςεγατεδΤιπ¨Άγγυι®ΤεψτΒΝΖοξτΊσετΤεψτΆ¬Άγγυι®ΤεψτΒΝΖοξτΊσετΣτςιξηΆ©    ςετυςξ σεμζΊσετΣτςιξη¨στς©εξδγγυι®ΤεψτΒΝΖοξτ®σετΤεψτ ½  ΤεψτΒΝΖοξτΔεπςεγατεδ®σετΤεψτζυξγτιοξ ΤεψτΒΝΖοξτΔεπςεγατεδ®ηετΣτςιξηΦαμυε¨σεμζ©    δεπςεγατεδΤιπ¨Άγγυι®ΤεψτΊηετΣτςιξηΦαμυεΆ¬Άγγυι®ΤεψτΒΝΖοξτΊηετΣτςιξηΆ©    ςετυςξ σεμζΊηετΣτςιξη¨©εξδγγυι®Τεψτ®ηετΣτςιξηΦαμυε ½ ΤεψτΒΝΖοξτΔεπςεγατεδ®ηετΣτςιξηΦαμυε­­ζυξγτιοξσ οζ γγυι®ΤεψτΒΝΖοξτ χιμμ βε δεπςεγατεδ βεηιξ­­ζυξγτιοξσ οζ γγ®ΣθαδεςΓαγθε χιμμ βε δεπςεγατεδ βεηιξμογαμ ΣθαδεςΓαγθεΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΣθαδεςΓαγθεΔεπςεγατεδ®ηετΠςοηςαν¨σεμζ¬στςΣθαδες©    δεπςεγατεδΤιπ¨Άγγ®ΣθαδεςΓαγθεΊηετΠςοηςανΆ¬Άγγ®ΣθαδεςΓαγθεΊηετΗΜΠςοηςανΆ©    ςετυςξ σεμζΊηετΗΜΠςοηςαν¨στςΣθαδες©εξδγγ®ΣθαδεςΓαγθε®ηετΠςοηςαν ½ ΣθαδεςΓαγθεΔεπςεγατεδ®ηετΠςοηςαν­­ζυξγτιοξσ οζ γγυι®ΤεψτΒΝΖοξτ χιμμ βε δεπςεγατεδ βεηιξ­­ζυξγτιοξσ οζ γγυι®Χιδηετ χιμμ βε δεπςεγατεδ βεηιξμογαμ ΥΙΧιδηετΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΥΙΧιδηετΔεπςεγατεδ®ηετΜεζτΙξΠαςεξτ¨σεμζ©    δεπςεγατεδΤιπ¨Άγγυι®ΧιδηετΊηετΜεζτΙξΠαςεξτΆ¬Άγγυι®ΧιδηετΊηετΜεζτΒουξδαςωΆ©    ςετυςξ σεμζΊηετΜεζτΒουξδαςω¨©εξδγγυι®Χιδηετ®ηετΜεζτΙξΠαςεξτ ½ ΥΙΧιδηετΔεπςεγατεδ®ηετΜεζτΙξΠαςεξτζυξγτιοξ ΥΙΧιδηετΔεπςεγατεδ®ηετΒοττονΙξΠαςεξτ¨σεμζ©    δεπςεγατεδΤιπ¨Άγγυι®ΧιδηετΊηετΒοττονΙξΠαςεξτΆ¬Άγγυι®ΧιδηετΊηετΒοττονΒουξδαςωΆ©    ςετυςξ σεμζΊηετΒοττονΒουξδαςω¨©εξδγγυι®Χιδηετ®ηετΒοττονΙξΠαςεξτ ½ ΥΙΧιδηετΔεπςεγατεδ®ηετΒοττονΙξΠαςεξτζυξγτιοξ ΥΙΧιδηετΔεπςεγατεδ®ηετÒιηθτΙξΠαςεξτ¨σεμζ©    δεπςεγατεδΤιπ¨Άγγυι®ΧιδηετΊηετÒιηθτΙξΠαςεξτΆ¬Άγγυι®ΧιδηετΊηετÒιηθτΒουξδαςωΆ©    ςετυςξ σεμζΊηετÒιηθτΒουξδαςω¨©εξδγγυι®Χιδηετ®ηετÒιηθτΙξΠαςεξτ ½ ΥΙΧιδηετΔεπςεγατεδ®ηετÒιηθτΙξΠαςεξτζυξγτιοξ ΥΙΧιδηετΔεπςεγατεδ®ηετΤοπΙξΠαςεξτ¨σεμζ©    δεπςεγατεδΤιπ¨Άγγυι®ΧιδηετΊηετΤοπΙξΠαςεξτΆ¬Άγγυι®ΧιδηετΊηετΤοπΒουξδαςωΆ©    ςετυςξ σεμζΊηετΤοπΒουξδαςω¨©εξδγγυι®Χιδηετ®ηετΤοπΙξΠαςεξτ ½ ΥΙΧιδηετΔεπςεγατεδ®ηετΤοπΙξΠαςεξτζυξγτιοξ ΥΙΧιδηετΔεπςεγατεδ®ηετΣιϊε¨σεμζ©    δεπςεγατεδΤιπ¨Άγγυι®ΧιδηετΊηετΣιϊεΆ¬Άγγυι®ΧιδηετΊηετΓοξτεξτΣιϊεΆ©    ςετυςξ σεμζΊηετΓοξτεξτΣιϊε¨©εξδγγυι®Χιδηετ®ηετΣιϊε ½ ΥΙΧιδηετΔεπςεγατεδ®ηετΣιϊεζυξγτιοξ ΥΙΧιδηετΔεπςεγατεδ®σετΣιϊε¨σεμζ¬ ®®®©    δεπςεγατεδΤιπ¨Άγγυι®ΧιδηετΊσετΣιϊεΆ¬Άγγυι®ΧιδηετΊσετΓοξτεξτΣιϊεΆ©    ςετυςξ σεμζΊσετΓοξτεξτΣιϊε¨®®®©εξδγγυι®Χιδηετ®σετΣιϊε ½ ΥΙΧιδηετΔεπςεγατεδ®σετΣιϊε­­ζυξγτιοξσ οζ γγυι®Χιδηετ χιμμ βε δεπςεγατεδ εξδ­­ζυξγτιοξσ οζ γγυι®ΓθεγλΒοψ χιμμ βε δεπςεγατεδ βεηιξμογαμ ΥΙΓθεγλΒοψΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΥΙΓθεγλΒοψΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΓθεγλΒοψ¨σεμζ¬θαξδμες©    δεπςεγατεδΤιπ¨Άγγυι®ΓθεγλΒοψΊαδδΕφεξτΜιστεξεςΓθεγλΒοψΆ¬Άγγυι®ΓθεγλΒοψΊαδδΕφεξτΜιστεξεςΆ©    ςετυςξ σεμζΊαδδΕφεξτΜιστεξες¨θαξδμες©εξδγγυι®ΓθεγλΒοψ®αδδΕφεξτΜιστεξεςΓθεγλΒοψ ½ ΥΙΓθεγλΒοψΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΓθεγλΒοψζυξγτιοξ ΥΙΓθεγλΒοψΔεπςεγατεδ®σετΣεμεγτεδΣτατε¨σεμζ¬ζμαη©   δεπςεγατεδΤιπ¨Άγγυι®ΓθεγλΒοψΊσετΣεμεγτεδΣτατεΆ¬ Άγγυι®ΓθεγλΒοψΊσετΣεμεγτεδΆ©   ςετυςξ σεμζΊσετΣεμεγτεδ¨ζμαη©εξδγγυι®ΓθεγλΒοψ®σετΣεμεγτεδΣτατε ½ ΥΙΓθεγλΒοψΔεπςεγατεδ®σετΣεμεγτεδΣτατεζυξγτιοξ ΥΙΓθεγλΒοψΔεπςεγατεδ®ηετΣεμεγτεδΣτατε¨σεμζ©   δεπςεγατεδΤιπ¨Άγγυι®ΓθεγλΒοψΊηετΣεμεγτεδΣτατεΆ¬ Άγγυι®ΓθεγλΒοψΊηετΣεμεγτεδΆ©   ςετυςξ σεμζΊηετΣεμεγτεδ¨©εξδγγυι®ΓθεγλΒοψ®ηετΣεμεγτεδΣτατε ½ ΥΙΓθεγλΒοψΔεπςεγατεδ®σετΣεμεγτεδΣτατε­­ζυξγτιοξσ οζ γγυι®ΓθεγλΒοψ χιμμ βε δεπςεγατεδ εξδ­­ζυξγτιοξσ οζ γγυι®Σμιδες χιμμ βε δεπςεγατεδ βεηιξμογαμ ΥΙΣμιδεςΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΥΙΣμιδεςΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΣμιδες¨σεμζ¬θαξδμες©    δεπςεγατεδΤιπ¨Άγγυι®ΣμιδεςΊαδδΕφεξτΜιστεξεςΣμιδεςΆ¬Άγγυι®ΣμιδεςΊαδδΕφεξτΜιστεξεςΆ©    ςετυςξ σεμζΊαδδΕφεξτΜιστεξες¨θαξδμες©εξδγγυι®Σμιδες®αδδΕφεξτΜιστεξεςΣμιδες ½ ΥΙΣμιδεςΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΣμιδες­­ζυξγτιοξσ οζ γγυι®Σμιδες χιμμ βε δεπςεγατεδ εξδ­­ζυξγτιοξσ οζ γγυι®ΤεψτΖιεμδ χιμμ βε δεπςεγατεδ βεηιξμογαμ ΥΙΤεψτΖιεμδΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΥΙΤεψτΖιεμδΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΤεψτΖιεμδ¨σεμζ¬θαξδμες©    δεπςεγατεδΤιπ¨Άγγυι®ΤεψτΖιεμδΊαδδΕφεξτΜιστεξεςΤεψτΖιεμδΆ¬Άγγυι®ΤεψτΖιεμδΊαδδΕφεξτΜιστεξεςΆ©    ςετυςξ σεμζΊαδδΕφεξτΜιστεξες¨θαξδμες©εξδγγυι®ΤεψτΖιεμδ®αδδΕφεξτΜιστεξεςΤεψτΖιεμδ ½ ΥΙΤεψτΖιεμδΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΤεψτΖιεμδζυξγτιοξ ΥΙΤεψτΖιεμδΔεπςεγατεδ®σετΤεψτ¨σεμζ¬ στς©    δεπςεγατεδΤιπ¨Άγγυι®ΤεψτΖιεμδΊσετΤεψτΆ¬Άγγυι®ΤεψτΖιεμδΊσετΣτςιξηΆ©    ςετυςξ σεμζΊσετΣτςιξη¨στς©εξδγγυι®ΤεψτΖιεμδ®σετΤεψτ ½ ΥΙΤεψτΖιεμδΔεπςεγατεδ®σετΤεψτζυξγτιοξ ΥΙΤεψτΖιεμδΔεπςεγατεδ®ηετΣτςιξηΦαμυε¨σεμζ©    δεπςεγατεδΤιπ¨Άγγυι®ΤεψτΖιεμδΊηετΣτςιξηΦαμυεΆ¬Άγγυι®ΤεψτΖιεμδΊηετΣτςιξηΆ©    ςετυςξ σεμζΊηετΣτςιξη¨©εξδγγυι®ΤεψτΖιεμδ®ηετΣτςιξηΦαμυε ½ ΥΙΤεψτΖιεμδΔεπςεγατεδ®ηετΣτςιξηΦαμυε­­ζυξγτιοξσ οζ γγυι®ΤεψτΖιεμδ χιμμ βε δεπςεγατεδ εξδ­­ζυξγτιοξσ οζ γγυι®ΠαηεΦιεχ χιμμ βε δεπςεγατεδ βεηιξμογαμ ΥΙΠαηεΦιεχΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΥΙΠαηεΦιεχΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΠαηεΦιεχ¨σεμζ¬θαξδμες©    δεπςεγατεδΤιπ¨Άγγυι®ΠαηεΦιεχΊαδδΕφεξτΜιστεξεςΠαηεΦιεχΆ¬Άγγυι®ΠαηεΦιεχΊαδδΕφεξτΜιστεξεςΆ©    ςετυςξ σεμζΊαδδΕφεξτΜιστεξες¨θαξδμες©εξδγγυι®ΠαηεΦιεχ®αδδΕφεξτΜιστεξεςΠαηεΦιεχ ½ ΥΙΠαηεΦιεχΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΠαηεΦιεχ­­ζυξγτιοξσ οζ γγυι®ΠαηεΦιεχ χιμμ βε δεπςεγατεδ εξδ­­ζυξγτιοξσ οζ γγυι®ΣγςομμΦιεχ χιμμ βε δεπςεγατεδ βεηιξμογαμ ΥΙΣγςομμΦιεχΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΥΙΣγςομμΦιεχΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΣγςομμΦιεχ¨σεμζ¬θαξδμες©    δεπςεγατεδΤιπ¨Άγγυι®ΣγςομμΦιεχΊαδδΕφεξτΜιστεξεςΣγςομμΦιεχΆ¬Άγγυι®ΣγςομμΦιεχΊαδδΕφεξτΜιστεξεςΆ©    ςετυςξ σεμζΊαδδΕφεξτΜιστεξες¨θαξδμες©εξδγγυι®ΣγςομμΦιεχ®αδδΕφεξτΜιστεξεςΣγςομμΦιεχ ½ ΥΙΣγςομμΦιεχΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΣγςομμΦιεχ­­ζυξγτιοξσ οζ γγυι®ΣγςομμΦιεχ χιμμ βε δεπςεγατεδ εξδ­­ζυξγτιοξσ οζ γγυι®ΜιστΦιεχ χιμμ βε δεπςεγατεδ βεηιξμογαμ ΥΙΜιστΦιεχΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΥΙΜιστΦιεχΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΜιστΦιεχ¨σεμζ¬θαξδμες©    δεπςεγατεδΤιπ¨Άγγυι®ΜιστΦιεχΊαδδΕφεξτΜιστεξεςΜιστΦιεχΆ¬Άγγυι®ΜιστΦιεχΊαδδΕφεξτΜιστεξεςΆ©    ςετυςξ σεμζΊαδδΕφεξτΜιστεξες¨θαξδμες©εξδγγυι®ΜιστΦιεχ®αδδΕφεξτΜιστεξεςΜιστΦιεχ ½ ΥΙΜιστΦιεχΔεπςεγατεδ®αδδΕφεξτΜιστεξεςΜιστΦιεχ­­ζυξγτιοξσ οζ γγυι®ΜιστΦιεχ χιμμ βε δεπςεγατεδ εξδ
+if nil == ccui then
+    return
+end
+
+--tip
+local function deprecatedTip(old_name,new_name)
+    print("\n********** \n"..old_name.." was deprecated please use ".. new_name .. " instead.\n**********")
+end
+
+--functions of ccui.Text will be deprecated begin
+local TextDeprecated = { }
+function TextDeprecated.setText(self, str)
+    deprecatedTip("ccui.Text:setText","ccui.Text:setString")
+    return self:setString(str)
+end
+ccui.Text.setText = TextDeprecated.setText
+
+function TextDeprecated.getStringValue(self)
+    deprecatedTip("ccui.Text:getStringValue","ccui.Text:getString")
+    return self:getString()
+end
+ccui.Text.getStringValue = TextDeprecated.getStringValue
+
+--functions of ccui.Text will be deprecated begin
+
+--functions of ccui.TextAtlas will be deprecated begin
+local TextAtlasDeprecated = { }
+function TextAtlasDeprecated.setStringValue(self, str)
+    deprecatedTip("ccui.TextAtlas:setStringValue","ccui.TextAtlas:setString")
+    return self:setString(str)
+end
+ccui.TextAtlas.setStringValue = TextAtlasDeprecated.setStringValue
+
+function TextAtlasDeprecated.getStringValue(self)
+    deprecatedTip("ccui.TextAtlas:getStringValue","ccui.TextAtlas:getString")
+    return self:getString()
+end
+ccui.TextAtlas.getStringValue = TextAtlasDeprecated.getStringValue
+--functions of ccui.TextAtlas will be deprecated begin
+
+
+--functions of ccui.TextBMFont will be deprecated begin
+local TextBMFontDeprecated = { }
+function TextBMFontDeprecated.setText(self, str)
+    deprecatedTip("ccui.TextBMFont:setText","ccui.TextBMFont:setString")
+    return self:setString(str)
+end
+ccui.TextBMFont.setText =  TextBMFontDeprecated.setText
+
+function TextBMFontDeprecated.getStringValue(self)
+    deprecatedTip("ccui.Text:getStringValue","ccui.TextBMFont:getString")
+    return self:getString()
+end
+ccui.Text.getStringValue = TextBMFontDeprecated.getStringValue
+--functions of ccui.TextBMFont will be deprecated begin
+
+--functions of cc.ShaderCache will be deprecated begin
+local ShaderCacheDeprecated = { }
+function ShaderCacheDeprecated.getProgram(self,strShader)
+    deprecatedTip("cc.ShaderCache:getProgram","cc.ShaderCache:getGLProgram")
+    return self:getGLProgram(strShader)
+end
+cc.ShaderCache.getProgram = ShaderCacheDeprecated.getProgram
+--functions of ccui.TextBMFont will be deprecated begin
+
+--functions of ccui.Widget will be deprecated begin
+local UIWidgetDeprecated = { }
+function UIWidgetDeprecated.getLeftInParent(self)
+    deprecatedTip("ccui.Widget:getLeftInParent","ccui.Widget:getLeftBoundary")
+    return self:getLeftBoundary()
+end
+ccui.Widget.getLeftInParent = UIWidgetDeprecated.getLeftInParent
+
+function UIWidgetDeprecated.getBottomInParent(self)
+    deprecatedTip("ccui.Widget:getBottomInParent","ccui.Widget:getBottomBoundary")
+    return self:getBottomBoundary()
+end
+ccui.Widget.getBottomInParent = UIWidgetDeprecated.getBottomInParent
+
+function UIWidgetDeprecated.getRightInParent(self)
+    deprecatedTip("ccui.Widget:getRightInParent","ccui.Widget:getRightBoundary")
+    return self:getRightBoundary()
+end
+ccui.Widget.getRightInParent = UIWidgetDeprecated.getRightInParent
+
+function UIWidgetDeprecated.getTopInParent(self)
+    deprecatedTip("ccui.Widget:getTopInParent","ccui.Widget:getTopBoundary")
+    return self:getTopBoundary()
+end
+ccui.Widget.getTopInParent = UIWidgetDeprecated.getTopInParent
+
+function UIWidgetDeprecated.getSize(self)
+    deprecatedTip("ccui.Widget:getSize","ccui.Widget:getContentSize")
+    return self:getContentSize()
+end
+ccui.Widget.getSize = UIWidgetDeprecated.getSize
+
+function UIWidgetDeprecated.setSize(self, ...)
+    deprecatedTip("ccui.Widget:setSize","ccui.Widget:setContentSize")
+    return self:setContentSize(...)
+end
+ccui.Widget.setSize = UIWidgetDeprecated.setSize
+
+--functions of ccui.Widget will be deprecated end
+
+--functions of ccui.CheckBox will be deprecated begin
+local UICheckBoxDeprecated = { }
+function UICheckBoxDeprecated.addEventListenerCheckBox(self,handler)
+    deprecatedTip("ccui.CheckBox:addEventListenerCheckBox","ccui.CheckBox:addEventListener")
+    return self:addEventListener(handler)
+end
+ccui.CheckBox.addEventListenerCheckBox = UICheckBoxDeprecated.addEventListenerCheckBox
+
+function UICheckBoxDeprecated.setSelectedState(self,flag)
+   deprecatedTip("ccui.CheckBox:setSelectedState", "ccui.CheckBox:setSelected")
+   return self:setSelected(flag)
+end
+ccui.CheckBox.setSelectedState = UICheckBoxDeprecated.setSelectedState
+
+function UICheckBoxDeprecated.getSelectedState(self)
+   deprecatedTip("ccui.CheckBox:getSelectedState", "ccui.CheckBox:getSelected")
+   return self:getSelected()
+end
+ccui.CheckBox.getSelectedState = UICheckBoxDeprecated.setSelectedState
+
+--functions of ccui.CheckBox will be deprecated end
+
+--functions of ccui.Slider will be deprecated begin
+local UISliderDeprecated = { }
+function UISliderDeprecated.addEventListenerSlider(self,handler)
+    deprecatedTip("ccui.Slider:addEventListenerSlider","ccui.Slider:addEventListener")
+    return self:addEventListener(handler)
+end
+ccui.Slider.addEventListenerSlider = UISliderDeprecated.addEventListenerSlider
+--functions of ccui.Slider will be deprecated end
+
+--functions of ccui.TextField will be deprecated begin
+local UITextFieldDeprecated = { }
+function UITextFieldDeprecated.addEventListenerTextField(self,handler)
+    deprecatedTip("ccui.TextField:addEventListenerTextField","ccui.TextField:addEventListener")
+    return self:addEventListener(handler)
+end
+ccui.TextField.addEventListenerTextField = UITextFieldDeprecated.addEventListenerTextField
+
+function UITextFieldDeprecated.setText(self, str)
+    deprecatedTip("ccui.TextField:setText","ccui.TextField:setString")
+    return self:setString(str)
+end
+ccui.TextField.setText = UITextFieldDeprecated.setText
+
+function UITextFieldDeprecated.getStringValue(self)
+    deprecatedTip("ccui.TextField:getStringValue","ccui.TextField:getString")
+    return self:getString()
+end
+ccui.TextField.getStringValue = UITextFieldDeprecated.getStringValue
+--functions of ccui.TextField will be deprecated end
+
+--functions of ccui.PageView will be deprecated begin
+local UIPageViewDeprecated = { }
+function UIPageViewDeprecated.addEventListenerPageView(self,handler)
+    deprecatedTip("ccui.PageView:addEventListenerPageView","ccui.PageView:addEventListener")
+    return self:addEventListener(handler)
+end
+ccui.PageView.addEventListenerPageView = UIPageViewDeprecated.addEventListenerPageView
+--functions of ccui.PageView will be deprecated end
+
+--functions of ccui.ScrollView will be deprecated begin
+local UIScrollViewDeprecated = { }
+function UIScrollViewDeprecated.addEventListenerScrollView(self,handler)
+    deprecatedTip("ccui.ScrollView:addEventListenerScrollView","ccui.ScrollView:addEventListener")
+    return self:addEventListener(handler)
+end
+ccui.ScrollView.addEventListenerScrollView = UIScrollViewDeprecated.addEventListenerScrollView
+--functions of ccui.ScrollView will be deprecated end
+
+--functions of ccui.ListView will be deprecated begin
+local UIListViewDeprecated = { }
+function UIListViewDeprecated.addEventListenerListView(self,handler)
+    deprecatedTip("ccui.ListView:addEventListenerListView","ccui.ListView:addEventListener")
+    return self:addEventListener(handler)
+end
+ccui.ListView.addEventListenerListView = UIListViewDeprecated.addEventListenerListView
+--functions of ccui.ListView will be deprecated end

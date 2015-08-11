@@ -1,1 +1,44 @@
-­­ΫΫΓοπωςιηθτ ¨γ© ²°±±­²°±΄ γθυλοξη­ιξγ®γονΠεςνισσιοξ ισ θεςεβω ηςαξτεδ¬ ζςεε οζ γθαςηε¬ το αξω πεςσοξ οβταιξιξη α γοπωοζ τθισ σοζτχαςε αξδ ασσογιατεδ δογυνεξτατιοξ ζιμεσ ¨τθε ΆΣοζτχαςεΆ©¬ το δεαμιξ τθε Σοζτχαςε χιτθουτ ςεστςιγτιοξ¬ ιξγμυδιξη χιτθουτ μινιτατιοξ τθε ςιηθτστο υσε¬ γοπω¬ νοδιζω¬ νεςηε¬ πυβμισθ¬ διστςιβυτε¬ συβμιγεξσε¬ αξδ―ος σεμμγοπιεσ οζ τθε Σοζτχαςε¬ αξδ το πεςνιτ πεςσοξσ το χθον τθε Σοζτχαςε ισζυςξισθεδ το δο σο¬ συβκεγτ το τθε ζομμοχιξη γοξδιτιοξσΊΤθε αβοφε γοπωςιηθτ ξοτιγε αξδ τθισ πεςνισσιοξ ξοτιγε σθαμμ βε ιξγμυδεδ ιξαμμ γοπιεσ ος συβσταξτιαμ ποςτιοξσ οζ τθε Σοζτχαςε®ΤΘΕ ΣΟΖΤΧΑÒΕ ΙΣ ΠÒΟΦΙΔΕΔ ΆΑΣ ΙΣΆ¬ ΧΙΤΘΟΥΤ ΧΑÒÒΑΞΤΩ ΟΖ ΑΞΩ ΛΙΞΔ¬ ΕΨΠÒΕΣΣ ΟÒΙΝΠΜΙΕΔ¬ ΙΞΓΜΥΔΙΞΗ ΒΥΤ ΞΟΤ ΜΙΝΙΤΕΔ ΤΟ ΤΘΕ ΧΑÒÒΑΞΤΙΕΣ ΟΖ ΝΕÒΓΘΑΞΤΑΒΙΜΙΤΩ¬ΖΙΤΞΕΣΣ ΖΟÒ Α ΠΑÒΤΙΓΥΜΑÒ ΠΥÒΠΟΣΕ ΑΞΔ ΞΟΞΙΞΖÒΙΞΗΕΝΕΞΤ® ΙΞ ΞΟ ΕΦΕΞΤ ΣΘΑΜΜ ΤΘΕΑΥΤΘΟÒΣ ΟÒ ΓΟΠΩÒΙΗΘΤ ΘΟΜΔΕÒΣ ΒΕ ΜΙΑΒΜΕ ΖΟÒ ΑΞΩ ΓΜΑΙΝ¬ ΔΑΝΑΗΕΣ ΟÒ ΟΤΘΕÒΜΙΑΒΙΜΙΤΩ¬ ΧΘΕΤΘΕÒ ΙΞ ΑΞ ΑΓΤΙΟΞ ΟΖ ΓΟΞΤÒΑΓΤ¬ ΤΟÒΤ ΟÒ ΟΤΘΕÒΧΙΣΕ¬ ΑÒΙΣΙΞΗ ΖÒΟΝ¬ΟΥΤ ΟΖ ΟÒ ΙΞ ΓΟΞΞΕΓΤΙΟΞ ΧΙΤΘ ΤΘΕ ΣΟΖΤΧΑÒΕ ΟÒ ΤΘΕ ΥΣΕ ΟÒ ΟΤΘΕÒ ΔΕΑΜΙΞΗΣ ΙΞΤΘΕ ΣΟΖΤΧΑÒΕ®έέμογαμ ΤεψτΖιεμδ ½ γγυι®ΤεψτΖιεμδζυξγτιοξ ΤεψτΖιεμδΊοξΕφεξτ¨γαμμβαγλ©    σεμζΊαδδΕφεξτΜιστεξες¨ζυξγτιοξ¨σεξδες¬ εφεξτΤωπε©        μογαμ εφεξτ ½ ϋύ        ιζ εφεξτΤωπε ½½ ° τθεξ            εφεξτ®ξανε ½ ΆΑΤΤΑΓΘίΧΙΤΘίΙΝΕΆ        εμσειζ εφεξτΤωπε ½½ ± τθεξ            εφεξτ®ξανε ½ ΆΔΕΤΑΓΘίΧΙΤΘίΙΝΕΆ        εμσειζ εφεξτΤωπε ½½ ² τθεξ            εφεξτ®ξανε ½ ΆΙΞΣΕÒΤίΤΕΨΤΆ        εμσειζ εφεξτΤωπε ½½ ³ τθεξ            εφεξτ®ξανε ½ ΆΔΕΜΕΤΕίΒΑΓΛΧΑÒΔΆ        εξδ        εφεξτ®ταςηετ ½ σεξδες        γαμμβαγλ¨εφεξτ©    εξδ©    ςετυςξ σεμζεξδ
+
+--[[
+
+Copyright (c) 2011-2014 chukong-inc.com
+
+Permission is hereby granted, free of charge, to any person obtaining a copy
+of this software and associated documentation files (the "Software"), to deal
+in the Software without restriction, including without limitation the rights
+to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
+copies of the Software, and to permit persons to whom the Software is
+furnished to do so, subject to the following conditions:
+
+The above copyright notice and this permission notice shall be included in
+all copies or substantial portions of the Software.
+
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR
+IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY,
+FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE
+AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER
+LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
+OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN
+THE SOFTWARE.
+
+]]
+
+local TextField = ccui.TextField
+
+function TextField:onEvent(callback)
+    self:addEventListener(function(sender, eventType)
+        local event = {}
+        if eventType == 0 then
+            event.name = "ATTACH_WITH_IME"
+        elseif eventType == 1 then
+            event.name = "DETACH_WITH_IME"
+        elseif eventType == 2 then
+            event.name = "INSERT_TEXT"
+        elseif eventType == 3 then
+            event.name = "DELETE_BACKWARD"
+        end
+        event.target = sender
+        callback(event)
+    end)
+    return self
+end

@@ -1,1 +1,541 @@
-­­ÛÛŠŠÃïðùòéçèô ¨ã© ²°±±­²°±´ ãèõëïîç­éîã®ãïíŠŠÐåòíéóóéïî éó èåòåâù çòáîôåä¬ æòåå ïæ ãèáòçå¬ ôï áîù ðåòóïî ïâôáéîéîç á ãïðùŠïæ ôèéó óïæô÷áòå áîä áóóïãéáôåä äïãõíåîôáôéïî æéìåó ¨ôèå ¢Óïæô÷áòå¢©¬ ôï äåáìŠéî ôèå Óïæô÷áòå ÷éôèïõô òåóôòéãôéïî¬ éîãìõäéîç ÷éôèïõô ìéíéôáôéïî ôèå òéçèôóŠôï õóå¬ ãïðù¬ íïäéæù¬ íåòçå¬ ðõâìéóè¬ äéóôòéâõôå¬ óõâìéãåîóå¬ áîä¯ïò óåììŠãïðéåó ïæ ôèå Óïæô÷áòå¬ áîä ôï ðåòíéô ðåòóïîó ôï ÷èïí ôèå Óïæô÷áòå éóŠæõòîéóèåä ôï äï óï¬ óõâêåãô ôï ôèå æïììï÷éîç ãïîäéôéïîóºŠŠÔèå áâïöå ãïðùòéçèô îïôéãå áîä ôèéó ðåòíéóóéïî îïôéãå óèáìì âå éîãìõäåä éîŠáìì ãïðéåó ïò óõâóôáîôéáì ðïòôéïîó ïæ ôèå Óïæô÷áòå®ŠŠÔÈÅ ÓÏÆÔ×ÁÒÅ ÉÓ ÐÒÏÖÉÄÅÄ ¢ÁÓ ÉÓ¢¬ ×ÉÔÈÏÕÔ ×ÁÒÒÁÎÔÙ ÏÆ ÁÎÙ ËÉÎÄ¬ ÅØÐÒÅÓÓ ÏÒŠÉÍÐÌÉÅÄ¬ ÉÎÃÌÕÄÉÎÇ ÂÕÔ ÎÏÔ ÌÉÍÉÔÅÄ ÔÏ ÔÈÅ ×ÁÒÒÁÎÔÉÅÓ ÏÆ ÍÅÒÃÈÁÎÔÁÂÉÌÉÔÙ¬ŠÆÉÔÎÅÓÓ ÆÏÒ Á ÐÁÒÔÉÃÕÌÁÒ ÐÕÒÐÏÓÅ ÁÎÄ ÎÏÎÉÎÆÒÉÎÇÅÍÅÎÔ® ÉÎ ÎÏ ÅÖÅÎÔ ÓÈÁÌÌ ÔÈÅŠÁÕÔÈÏÒÓ ÏÒ ÃÏÐÙÒÉÇÈÔ ÈÏÌÄÅÒÓ ÂÅ ÌÉÁÂÌÅ ÆÏÒ ÁÎÙ ÃÌÁÉÍ¬ ÄÁÍÁÇÅÓ ÏÒ ÏÔÈÅÒŠÌÉÁÂÉÌÉÔÙ¬ ×ÈÅÔÈÅÒ ÉÎ ÁÎ ÁÃÔÉÏÎ ÏÆ ÃÏÎÔÒÁÃÔ¬ ÔÏÒÔ ÏÒ ÏÔÈÅÒ×ÉÓÅ¬ ÁÒÉÓÉÎÇ ÆÒÏÍ¬ŠÏÕÔ ÏÆ ÏÒ ÉÎ ÃÏÎÎÅÃÔÉÏÎ ×ÉÔÈ ÔÈÅ ÓÏÆÔ×ÁÒÅ ÏÒ ÔÈÅ ÕÓÅ ÏÒ ÏÔÈÅÒ ÄÅÁÌÉÎÇÓ ÉÎŠÔÈÅ ÓÏÆÔ×ÁÒÅ®ŠŠÝÝŠŠìïãáì äéóðìáù ½ ûýŠŠìïãáì äéòåãôïò ½ ãã®ÄéòåãôïòºçåôÉîóôáîãå¨©Šìïãáì öéå÷ ½ äéòåãôïòºçåôÏðåîÇÌÖéå÷¨©ŠŠéæ îïô öéå÷ ôèåîŠ    ìïãáì ÷éäôè ½ ¹¶°Š    ìïãáì èåéçèô ½ ¶´°Š    éæ ÃÃßÄÅÓÉÇÎßÒÅÓÏÌÕÔÉÏÎ ôèåîŠ        éæ ÃÃßÄÅÓÉÇÎßÒÅÓÏÌÕÔÉÏÎ®÷éäôè ôèåîŠ            ÷éäôè ½ ÃÃßÄÅÓÉÇÎßÒÅÓÏÌÕÔÉÏÎ®÷éäôèŠ        åîäŠ        éæ ÃÃßÄÅÓÉÇÎßÒÅÓÏÌÕÔÉÏÎ®èåéçèô ôèåîŠ            èåéçèô ½ ÃÃßÄÅÓÉÇÎßÒÅÓÏÌÕÔÉÏÎ®èåéçèôŠ        åîäŠ    åîäŠ    öéå÷ ½ ãã®ÇÌÖéå÷Éíðìºãòåáôå×éôèÒåãô¨¢Ãïãïó²ä­Ìõá¢¬ ãã®òåãô¨°¬ °¬ ÷éäôè¬ èåéçèô©©Š    äéòåãôïòºóåôÏðåîÇÌÖéå÷¨öéå÷©ŠåîäŠŠìïãáì æòáíåóéúå ½ öéå÷ºçåôÆòáíåÓéúå¨©Šìïãáì ôåøôõòåÃáãèå ½ äéòåãôïòºçåôÔåøôõòåÃáãèå¨©Šìïãáì óðòéôåÆòáíåÃáãèå ½ ãã®ÓðòéôåÆòáíåÃáãèåºçåôÉîóôáîãå¨©Šìïãáì áîéíáôéïîÃáãèå ½ ãã®ÁîéíáôéïîÃáãèåºçåôÉîóôáîãå¨©ŠŠ­­ áõôï óãáìåŠìïãáì æõîãôéïî ãèåãëÒåóïìõôéïî¨ò©Š    ò®÷éäôè ½ ãèåãëîõíâåò¨ò®÷éäôè©Š    ò®èåéçèô ½ ãèåãëîõíâåò¨ò®èåéçèô©Š    ò®áõôïóãáìå ½ óôòéîç®õððåò¨ò®áõôïóãáìå©Š    áóóåòô¨ò®÷éäôè ¾ ° áîä ò®èåéçèô ¾ °¬Š        óôòéîç®æïòíáô¨¢äéóðìáù ­ éîöáìéä äåóéçî òåóïìõôéïî óéúå ¥ä¬ ¥ä¢¬ ò®÷éäôè¬ ò®èåéçèô©©ŠåîäŠŠìïãáì æõîãôéïî óåôÄåóéçîÒåóïìõôéïî¨ò¬ æòáíåóéúå©Š    éæ ò®áõôïóãáìå ½½ ¢ÆÉÌÌßÁÌÌ¢ ôèåîŠ        öéå÷ºóåôÄåóéçîÒåóïìõôéïîÓéúå¨æòáíåóéúå®÷éäôè¬ æòáíåóéúå®èåéçèô¬ ãã®ÒåóïìõôéïîÐïìéãù®ÆÉÌÌßÁÌÌ©Š    åìóåŠ        ìïãáì óãáìåØ¬ óãáìåÙ ½ æòáíåóéúå®÷éäôè ¯ ò®÷éäôè¬ æòáíåóéúå®èåéçèô ¯ ò®èåéçèôŠ        ìïãáì ÷éäôè¬ èåéçèô ½ æòáíåóéúå®÷éäôè¬ æòáíåóéúå®èåéçèôŠ        éæ ò®áõôïóãáìå ½½ ¢ÆÉØÅÄß×ÉÄÔÈ¢ ôèåîŠ            ÷éäôè ½ æòáíåóéúå®÷éäôè ¯ óãáìåØŠ            èåéçèô ½ æòáíåóéúå®èåéçèô ¯ óãáìåØŠ            öéå÷ºóåôÄåóéçîÒåóïìõôéïîÓéúå¨÷éäôè¬ èåéçèô¬ ãã®ÒåóïìõôéïîÐïìéãù®ÎÏßÂÏÒÄÅÒ©Š        åìóåéæ ò®áõôïóãáìå ½½ ¢ÆÉØÅÄßÈÅÉÇÈÔ¢ ôèåîŠ            ÷éäôè ½ æòáíåóéúå®÷éäôè ¯ óãáìåÙŠ            èåéçèô ½ æòáíåóéúå®èåéçèô ¯ óãáìåÙŠ            öéå÷ºóåôÄåóéçîÒåóïìõôéïîÓéúå¨÷éäôè¬ èåéçèô¬ ãã®ÒåóïìõôéïîÐïìéãù®ÎÏßÂÏÒÄÅÒ©Š        åìóåéæ ò®áõôïóãáìå ½½ ¢ÅØÁÃÔßÆÉÔ¢ ôèåîŠ            öéå÷ºóåôÄåóéçîÒåóïìõôéïîÓéúå¨ò®÷éäôè¬ ò®èåéçèô¬ ãã®ÒåóïìõôéïîÐïìéãù®ÅØÁÃÔßÆÉÔ©Š        åìóåéæ ò®áõôïóãáìå ½½ ¢ÎÏßÂÏÒÄÅÒ¢ ôèåîŠ            öéå÷ºóåôÄåóéçîÒåóïìõôéïîÓéúå¨ò®÷éäôè¬ ò®èåéçèô¬ ãã®ÒåóïìõôéïîÐïìéãù®ÎÏßÂÏÒÄÅÒ©Š        åìóåéæ ò®áõôïóãáìå ½½ ¢ÓÈÏ×ßÁÌÌ¢ ôèåîŠ            öéå÷ºóåôÄåóéçîÒåóïìõôéïîÓéúå¨ò®÷éäôè¬ ò®èåéçèô¬ ãã®ÒåóïìõôéïîÐïìéãù®ÓÈÏ×ßÁÌÌ©Š        åìóåŠ            ðòéîôÅòòïò¨óôòéîç®æïòíáô¨¢äéóðìáù ­ éîöáìéä ò®áõôïóãáìå Ü¢¥óÜ¢¢¬ ò®áõôïóãáìå©©Š        åîäŠ    åîäŠåîäŠŠìïãáì æõîãôéïî óåôÃïîóôáîôó¨©Š    ìïãáì óéúåÉîÐéøåìó ½ öéå÷ºçåôÆòáíåÓéúå¨©Š    äéóðìáù®óéúåÉîÐéøåìó ½ û÷éäôè ½ óéúåÉîÐéøåìó®÷éäôè¬ èåéçèô ½ óéúåÉîÐéøåìó®èåéçèôýŠŠ    ìïãáì öéå÷óéúå ½ äéòåãôïòºçåô×éîÓéúå¨©Š    äéóðìáù®ãïîôåîôÓãáìåÆáãôïò ½ äéòåãôïòºçåôÃïîôåîôÓãáìåÆáãôïò¨©Š    äéóðìáù®óéúå               ½ û÷éäôè ½ öéå÷óéúå®÷éäôè¬ èåéçèô ½ öéå÷óéúå®èåéçèôýŠ    äéóðìáù®÷éäôè              ½ äéóðìáù®óéúå®÷éäôèŠ    äéóðìáù®èåéçèô             ½ äéóðìáù®óéúå®èåéçèôŠ    äéóðìáù®ãø                 ½ äéóðìáù®÷éäôè ¯ ²Š    äéóðìáù®ãù                 ½ äéóðìáù®èåéçèô ¯ ²Š    äéóðìáù®ãßìåæô             ½ ­äéóðìáù®÷éäôè ¯ ²Š    äéóðìáù®ãßòéçèô            ½ äéóðìáù®÷éäôè ¯ ²Š    äéóðìáù®ãßôïð              ½ äéóðìáù®èåéçèô ¯ ²Š    äéóðìáù®ãßâïôôïí           ½ ­äéóðìáù®èåéçèô ¯ ²Š    äéóðìáù®ìåæô               ½ °Š    äéóðìáù®òéçèô              ½ äéóðìáù®÷éäôèŠ    äéóðìáù®ôïð                ½ äéóðìáù®èåéçèôŠ    äéóðìáù®âïôôïí             ½ °Š    äéóðìáù®ãåîôåò             ½ ãã®ð¨äéóðìáù®ãø¬ äéóðìáù®ãù©Š    äéóðìáù®ìåæôßôïð           ½ ãã®ð¨äéóðìáù®ìåæô¬ äéóðìáù®ôïð©Š    äéóðìáù®ìåæôßâïôôïí        ½ ãã®ð¨äéóðìáù®ìåæô¬ äéóðìáù®âïôôïí©Š    äéóðìáù®ìåæôßãåîôåò        ½ ãã®ð¨äéóðìáù®ìåæô¬ äéóðìáù®ãù©Š    äéóðìáù®òéçèôßôïð          ½ ãã®ð¨äéóðìáù®òéçèô¬ äéóðìáù®ôïð©Š    äéóðìáù®òéçèôßâïôôïí       ½ ãã®ð¨äéóðìáù®òéçèô¬ äéóðìáù®âïôôïí©Š    äéóðìáù®òéçèôßãåîôåò       ½ ãã®ð¨äéóðìáù®òéçèô¬ äéóðìáù®ãù©Š    äéóðìáù®ôïðßãåîôåò         ½ ãã®ð¨äéóðìáù®ãø¬ äéóðìáù®ôïð©Š    äéóðìáù®ôïðßâïôôïí         ½ ãã®ð¨äéóðìáù®ãø¬ äéóðìáù®âïôôïí©ŠŠ    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®óéúåÉîÐéøåìó         ½ û÷éäôè ½ ¥°®²æ¬ èåéçèô ½ ¥°®²æý¢¬ äéóðìáù®óéúåÉîÐéøåìó®÷éäôè¬ äéóðìáù®óéúåÉîÐéøåìó®èåéçèô©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®óéúå                 ½ û÷éäôè ½ ¥°®²æ¬ èåéçèô ½ ¥°®²æý¢¬ äéóðìáù®óéúå®÷éäôè¬ äéóðìáù®óéúå®èåéçèô©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ãïîôåîôÓãáìåÆáãôïò   ½ ¥°®²æ¢¬ äéóðìáù®ãïîôåîôÓãáìåÆáãôïò©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®÷éäôè                ½ ¥°®²æ¢¬ äéóðìáù®÷éäôè©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®èåéçèô               ½ ¥°®²æ¢¬ äéóðìáù®èåéçèô©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ãø                   ½ ¥°®²æ¢¬ äéóðìáù®ãø©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ãù                   ½ ¥°®²æ¢¬ äéóðìáù®ãù©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ìåæô                 ½ ¥°®²æ¢¬ äéóðìáù®ìåæô©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®òéçèô                ½ ¥°®²æ¢¬ äéóðìáù®òéçèô©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ôïð                  ½ ¥°®²æ¢¬ äéóðìáù®ôïð©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®âïôôïí               ½ ¥°®²æ¢¬ äéóðìáù®âïôôïí©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ãßìåæô               ½ ¥°®²æ¢¬ äéóðìáù®ãßìåæô©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ãßòéçèô              ½ ¥°®²æ¢¬ äéóðìáù®ãßòéçèô©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ãßôïð                ½ ¥°®²æ¢¬ äéóðìáù®ãßôïð©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ãßâïôôïí             ½ ¥°®²æ¢¬ äéóðìáù®ãßâïôôïí©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ãåîôåò               ½ ûø ½ ¥°®²æ¬ ù ½ ¥°®²æý¢¬ äéóðìáù®ãåîôåò®ø¬ äéóðìáù®ãåîôåò®ù©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ìåæôßôïð             ½ ûø ½ ¥°®²æ¬ ù ½ ¥°®²æý¢¬ äéóðìáù®ìåæôßôïð®ø¬ äéóðìáù®ìåæôßôïð®ù©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ìåæôßâïôôïí          ½ ûø ½ ¥°®²æ¬ ù ½ ¥°®²æý¢¬ äéóðìáù®ìåæôßâïôôïí®ø¬ äéóðìáù®ìåæôßâïôôïí®ù©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ìåæôßãåîôåò          ½ ûø ½ ¥°®²æ¬ ù ½ ¥°®²æý¢¬ äéóðìáù®ìåæôßãåîôåò®ø¬ äéóðìáù®ìåæôßãåîôåò®ù©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®òéçèôßôïð            ½ ûø ½ ¥°®²æ¬ ù ½ ¥°®²æý¢¬ äéóðìáù®òéçèôßôïð®ø¬ äéóðìáù®òéçèôßôïð®ù©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®òéçèôßâïôôïí         ½ ûø ½ ¥°®²æ¬ ù ½ ¥°®²æý¢¬ äéóðìáù®òéçèôßâïôôïí®ø¬ äéóðìáù®òéçèôßâïôôïí®ù©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®òéçèôßãåîôåò         ½ ûø ½ ¥°®²æ¬ ù ½ ¥°®²æý¢¬ äéóðìáù®òéçèôßãåîôåò®ø¬ äéóðìáù®òéçèôßãåîôåò®ù©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ôïðßãåîôåò           ½ ûø ½ ¥°®²æ¬ ù ½ ¥°®²æý¢¬ äéóðìáù®ôïðßãåîôåò®ø¬ äéóðìáù®ôïðßãåîôåò®ù©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äéóðìáù®ôïðßâïôôïí           ½ ûø ½ ¥°®²æ¬ ù ½ ¥°®²æý¢¬ äéóðìáù®ôïðßâïôôïí®ø¬ äéóðìáù®ôïðßâïôôïí®ù©©Š    ðòéîôÉîæï¨¢£¢©ŠåîäŠŠæõîãôéïî äéóðìáù®óåôÁõôïÓãáìå¨ãïîæéçó©Š    éæ ôùðå¨ãïîæéçó© þ½ ¢ôáâìå¢ ôèåî òåôõòî åîäŠŠ    ãèåãëÒåóïìõôéïî¨ãïîæéçó©Š    éæ ôùðå¨ãïîæéçó®ãáììâáãë© ½½ ¢æõîãôéïî¢ ôèåîŠ        ìïãáì ã ½ ãïîæéçó®ãáììâáãë¨æòáíåóéúå©Š        æïò ë¬ ö éî ðáéòó¨ã ïò ûý© äïŠ            ãïîæéçóÛëÝ ½ öŠ        åîäŠ        ãèåãëÒåóïìõôéïî¨ãïîæéçó©Š    åîäŠŠ    óåôÄåóéçîÒåóïìõôéïî¨ãïîæéçó¬ æòáíåóéúå©ŠŠ    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äåóéçî òåóïìõôéïî óéúå       ½ û÷éäôè ½ ¥°®²æ¬ èåéçèô ½ ¥°®²æý¢¬ ãïîæéçó®÷éäôè¬ ãïîæéçó®èåéçèô©©Š    ðòéîôÉîæï¨óôòéîç®æïòíáô¨¢£ äåóéçî òåóïìõôéïî áõôïóãáìå  ½ ¥ó¢¬ ãïîæéçó®áõôïóãáìå©©Š    óåôÃïîóôáîôó¨©ŠåîäŠŠéæ ôùðå¨ÃÃßÄÅÓÉÇÎßÒÅÓÏÌÕÔÉÏÎ© ½½ ¢ôáâìå¢ ôèåîŠ    äéóðìáù®óåôÁõôïÓãáìå¨ÃÃßÄÅÓÉÇÎßÒÅÓÏÌÕÔÉÏÎ©ŠåîäŠŠäéóðìáù®ÃÏÌÏÒß×ÈÉÔÅ ½ ãã®ã³â¨²µµ¬ ²µµ¬ ²µµ©Šäéóðìáù®ÃÏÌÏÒßÂÌÁÃË ½ ãã®ã³â¨°¬ °¬ °©Šäéóðìáù®ÃÏÌÏÒßÒÅÄ   ½ ãã®ã³â¨²µµ¬ °¬ °©Šäéóðìáù®ÃÏÌÏÒßÇÒÅÅÎ ½ ãã®ã³â¨°¬ ²µµ¬ °©Šäéóðìáù®ÃÏÌÏÒßÂÌÕÅ  ½ ãã®ã³â¨°¬ °¬ ²µµ©ŠŠäéóðìáù®ÁÕÔÏßÓÉÚÅ      ½ °Šäéóðìáù®ÆÉØÅÄßÓÉÚÅ     ½ ±Šäéóðìáù®ÌÅÆÔßÔÏßÒÉÇÈÔ  ½ °Šäéóðìáù®ÒÉÇÈÔßÔÏßÌÅÆÔ  ½ ±Šäéóðìáù®ÔÏÐßÔÏßÂÏÔÔÏÍ  ½ ²Šäéóðìáù®ÂÏÔÔÏÍßÔÏßÔÏÐ  ½ ³ŠŠäéóðìáù®ÃÅÎÔÅÒ        ½ ãã®ð¨°®µ¬ °®µ©Šäéóðìáù®ÌÅÆÔßÔÏÐ      ½ ãã®ð¨°¬ ±©Šäéóðìáù®ÌÅÆÔßÂÏÔÔÏÍ   ½ ãã®ð¨°¬ °©Šäéóðìáù®ÌÅÆÔßÃÅÎÔÅÒ   ½ ãã®ð¨°¬ °®µ©Šäéóðìáù®ÒÉÇÈÔßÔÏÐ     ½ ãã®ð¨±¬ ±©Šäéóðìáù®ÒÉÇÈÔßÂÏÔÔÏÍ  ½ ãã®ð¨±¬ °©Šäéóðìáù®ÒÉÇÈÔßÃÅÎÔÅÒ  ½ ãã®ð¨±¬ °®µ©Šäéóðìáù®ÃÅÎÔÅÒßÔÏÐ    ½ ãã®ð¨°®µ¬ ±©Šäéóðìáù®ÃÅÎÔÅÒßÂÏÔÔÏÍ ½ ãã®ð¨°®µ¬ °©ŠŠäéóðìáù®ÓÃÅÎÅßÔÒÁÎÓÉÔÉÏÎÓ ½ ûŠ    ÃÒÏÓÓÆÁÄÅ       ½ ãã®ÔòáîóéôéïîÃòïóóÆáäå¬Š    ÆÁÄÅ            ½ ûãã®ÔòáîóéôéïîÆáäå¬ ãã®ã³â¨°¬ °¬ °©ý¬Š    ÆÁÄÅÂÌ          ½ ãã®ÔòáîóéôéïîÆáäåÂÌ¬Š    ÆÁÄÅÄÏ×Î        ½ ãã®ÔòáîóéôéïîÆáäåÄï÷î¬Š    ÆÁÄÅÔÒ          ½ ãã®ÔòáîóéôéïîÆáäåÔÒ¬Š    ÆÁÄÅÕÐ          ½ ãã®ÔòáîóéôéïîÆáäåÕð¬Š    ÆÌÉÐÁÎÇÕÌÁÒ     ½ ûãã®ÔòáîóéôéïîÆìéðÁîçõìáò¬ ãã®ÔÒÁÎÓÉÔÉÏÎßÏÒÉÅÎÔÁÔÉÏÎßÌÅÆÔßÏÖÅÒý¬Š    ÆÌÉÐØ           ½ ûãã®ÔòáîóéôéïîÆìéðØ¬ ãã®ÔÒÁÎÓÉÔÉÏÎßÏÒÉÅÎÔÁÔÉÏÎßÌÅÆÔßÏÖÅÒý¬Š    ÆÌÉÐÙ           ½ ûãã®ÔòáîóéôéïîÆìéðÙ¬ ãã®ÔÒÁÎÓÉÔÉÏÎßÏÒÉÅÎÔÁÔÉÏÎßÕÐßÏÖÅÒý¬Š    ÊÕÍÐÚÏÏÍ        ½ ãã®ÔòáîóéôéïîÊõíðÚïïí¬Š    ÍÏÖÅÉÎÂ         ½ ãã®ÔòáîóéôéïîÍïöåÉîÂ¬Š    ÍÏÖÅÉÎÌ         ½ ãã®ÔòáîóéôéïîÍïöåÉîÌ¬Š    ÍÏÖÅÉÎÒ         ½ ãã®ÔòáîóéôéïîÍïöåÉîÒ¬Š    ÍÏÖÅÉÎÔ         ½ ãã®ÔòáîóéôéïîÍïöåÉîÔ¬Š    ÐÁÇÅÔÕÒÎ        ½ ûãã®ÔòáîóéôéïîÐáçåÔõòî¬ æáìóåý¬Š    ÒÏÔÏÚÏÏÍ        ½ ãã®ÔòáîóéôéïîÒïôïÚïïí¬Š    ÓÈÒÉÎËÇÒÏ×      ½ ãã®ÔòáîóéôéïîÓèòéîëÇòï÷¬Š    ÓÌÉÄÅÉÎÂ        ½ ãã®ÔòáîóéôéïîÓìéäåÉîÂ¬Š    ÓÌÉÄÅÉÎÌ        ½ ãã®ÔòáîóéôéïîÓìéäåÉîÌ¬Š    ÓÌÉÄÅÉÎÒ        ½ ãã®ÔòáîóéôéïîÓìéäåÉîÒ¬Š    ÓÌÉÄÅÉÎÔ        ½ ãã®ÔòáîóéôéïîÓìéäåÉîÔ¬Š    ÓÐÌÉÔÃÏÌÓ       ½ ãã®ÔòáîóéôéïîÓðìéôÃïìó¬Š    ÓÐÌÉÔÒÏ×Ó       ½ ãã®ÔòáîóéôéïîÓðìéôÒï÷ó¬Š    ÔÕÒÎÏÆÆÔÉÌÅÓ    ½ ãã®ÔòáîóéôéïîÔõòîÏææÔéìåó¬Š    ÚÏÏÍÆÌÉÐÁÎÇÕÌÁÒ ½ ãã®ÔòáîóéôéïîÚïïíÆìéðÁîçõìáò¬Š    ÚÏÏÍÆÌÉÐØ       ½ ûãã®ÔòáîóéôéïîÚïïíÆìéðØ¬ ãã®ÔÒÁÎÓÉÔÉÏÎßÏÒÉÅÎÔÁÔÉÏÎßÌÅÆÔßÏÖÅÒý¬Š    ÚÏÏÍÆÌÉÐÙ       ½ ûãã®ÔòáîóéôéïîÚïïíÆìéðÙ¬ ãã®ÔÒÁÎÓÉÔÉÏÎßÏÒÉÅÎÔÁÔÉÏÎßÕÐßÏÖÅÒý¬ŠýŠŠäéóðìáù®ÔÅØÔÕÒÅÓßÐÉØÅÌßÆÏÒÍÁÔ ½ ûýŠŠäéóðìáù®ÄÅÆÁÕÌÔßÔÔÆßÆÏÎÔ        ½ ¢Áòéáì¢Šäéóðìáù®ÄÅÆÁÕÌÔßÔÔÆßÆÏÎÔßÓÉÚÅ   ½ ³²ŠŠŠìïãáì ÐÁÒÁÍÓßÅÍÐÔÙ ½ ûýŠìïãáì ÒÅÃÔßÚÅÒÏ ½ ãã®òåãô¨°¬ °¬ °¬ °©ŠŠìïãáì óãåîåÉîäåø ½ °Šæõîãôéïî äéóðìáù®îå÷Óãåîå¨îáíå¬ ðáòáíó©Š    ðáòáíó ½ ðáòáíó ïò ÐÁÒÁÍÓßÅÍÐÔÙŠ    óãåîåÉîäåø ½ óãåîåÉîäåø « ±Š    ìïãáì óãåîåŠ    éæ îïô ðáòáíó®ðèùóéãó ôèåîŠ        óãåîå ½ ãã®Óãåîåºãòåáôå¨©Š    åìóåŠ        óãåîå ½ ãã®Óãåîåºãòåáôå×éôèÐèùóéãó¨©Š    åîäŠ    óãåîå®îáíåß ½ óôòéîç®æïòíáô¨¢¥óº¥ä¢¬ îáíå ïò ¢¼õîëîï÷î­óãåîå¾¢¬ óãåîåÉîäåø©ŠŠ    éæ ðáòáíó®ôòáîóéôéïî ôèåîŠ        óãåîå ½ äéóðìáù®÷òáðÓãåîå×éôèÔòáîóéôéïî¨óãåîå¬ ðáòáíó®ôòáîóéôéïî¬ ðáòáíó®ôéíå¬ ðáòáíó®íïòå©Š    åîäŠŠ    òåôõòî óãåîåŠåîäŠŠæõîãôéïî äéóðìáù®÷òáðÓãåîå¨óãåîå¬ ôòáîóéôéïî¬ ôéíå¬ íïòå©Š    ìïãáì ëåù ½ óôòéîç®õððåò¨ôïóôòéîç¨ôòáîóéôéïî©©ŠŠ    éæ ëåù ½½ ¢ÒÁÎÄÏÍ¢ ôèåîŠ        ìïãáì ëåùó ½ ôáâìå®ëåùó¨äéóðìáù®ÓÃÅÎÅßÔÒÁÎÓÉÔÉÏÎÓ©Š        ëåù ½ ëåùóÛíáôè®òáîäïí¨±¬ £ëåùó©ÝŠ    åîäŠŠ    éæ äéóðìáù®ÓÃÅÎÅßÔÒÁÎÓÉÔÉÏÎÓÛëåùÝ ôèåîŠ        ìïãáì ô ½ äéóðìáù®ÓÃÅÎÅßÔÒÁÎÓÉÔÉÏÎÓÛëåùÝŠ        ôéíå ½ ôéíå ïò °®²Š        íïòå ½ íïòå ïò ôÛ²ÝŠ        éæ ôùðå¨ô© ½½ ¢ôáâìå¢ ôèåîŠ            óãåîå ½ ôÛ±Ýºãòåáôå¨ôéíå¬ óãåîå¬ íïòå©Š        åìóåŠ            óãåîå ½ ôºãòåáôå¨ôéíå¬ óãåîå©Š        åîäŠ    åìóåŠ        åòòïò¨óôòéîç®æïòíáô¨¢äéóðìáù®÷òáðÓãåîå¨© ­ éîöáìéä ôòáîóéôéïî ¥ó¢¬ ôïóôòéîç¨ôòáîóéôéïî©©©Š    åîäŠ    òåôõòî óãåîåŠåîäŠŠæõîãôéïî äéóðìáù®òõîÓãåîå¨îå÷Óãåîå¬ ôòáîóéôéïî¬ ôéíå¬ íïòå©Š    éæ äéòåãôïòºçåôÒõîîéîçÓãåîå¨© ôèåîŠ        éæ ôòáîóéôéïî ôèåîŠ            îå÷Óãåîå ½ äéóðìáù®÷òáðÓãåîå¨îå÷Óãåîå¬ ôòáîóéôéïî¬ ôéíå¬ íïòå©Š        åîäŠ        äéòåãôïòºòåðìáãåÓãåîå¨îå÷Óãåîå©Š    åìóåŠ        äéòåãôïòºòõî×éôèÓãåîå¨îå÷Óãåîå©Š    åîäŠåîäŠŠæõîãôéïî äéóðìáù®çåôÒõîîéîçÓãåîå¨©Š    òåôõòî äéòåãôïòºçåôÒõîîéîçÓãåîå¨©ŠåîäŠŠæõîãôéïî äéóðìáù®îå÷Îïäå¨©Š    òåôõòî ãã®Îïäåºãòåáôå¨©ŠåîäŠŠæõîãôéïî äéóðìáù®îå÷Ìáùåò¨®®®©Š    ìïãáì ðáòáíó ½ û®®®ýŠ    ìïãáì ã ½ £ðáòáíóŠ    ìïãáì ìáùåòŠ    éæ ã ½½ ° ôèåîŠ        ­­ ¯ªª ãòåáôåó á æõììóãòååî âìáãë ìáùåò ª¯Š        ­­ óôáôéã Ìáùåò ªãòåáôå¨©»Š        ìáùåò ½ ãã®Ìáùåòºãòåáôå¨©Š    åìóåéæ ã ½½ ± ôèåîŠ        ­­ ¯ªª ãòåáôåó á Ìáùåò ÷éôè ãïìïò® ×éäôè áîä èåéçèô áòå ôèå ÷éîäï÷ óéúå® ª¯Š        ­­ óôáôéã ÌáùåòÃïìïò ª ãòåáôå¨ãïîóô Ãïìïò´Â¦ ãïìïò©»Š        ìáùåò ½ ãã®ÌáùåòÃïìïòºãòåáôå¨ãã®ãïîöåòôÃïìïò¨ðáòáíóÛ±Ý¬ ¢´â¢©©Š    åìóåéæ ã ½½ ² ôèåîŠ        ­­ ¯ªª ãòåáôåó á Ìáùåò ÷éôè ãïìïò¬ ÷éäôè áîä èåéçèô éî Ðïéîôó ª¯Š        ­­ óôáôéã ÌáùåòÃïìïò ª ãòåáôå¨ãïîóô Ãïìïò´Â¦ ãïìïò¬ ãïîóô Óéúå¦ óéúå©»Š        ­­Š        ­­ ¯ªª Ãòåáôåó á æõìì­óãòååî Ìáùåò ÷éôè á çòáäéåîô âåô÷ååî óôáòô áîä åîä® ª¯Š        ­­ óôáôéã ÌáùåòÇòáäéåîôª ãòåáôå¨ãïîóô Ãïìïò´Â¦ óôáòô¬ ãïîóô Ãïìïò´Â¦ åîä©»Š        ìïãáì ãïìïò± ½ ãã®ãïîöåòôÃïìïò¨ðáòáíóÛ±Ý¬ ¢´â¢©Š        ìïãáì ð² ½ ðáòáíóÛ²ÝŠ        áóóåòô¨ôùðå¨ð²© ½½ ¢ôáâìå¢ áîä ¨ð²®÷éäôè ïò ð²®ò©¬ ¢äéóðìáù®îå÷Ìáùåò¨© ­ éîöáìéä ðáòáíåòôåò ²¢©Š        éæ ð²®ò ôèåîŠ            ìáùåò ½ ãã®ÌáùåòÇòáäéåîôºãòåáôå¨ãïìïò±¬ ãã®ãïîöåòôÃïìïò¨ð²¬ ¢´â¢©©Š        åìóåŠ            ìáùåò ½ ãã®ÌáùåòÃïìïòºãòåáôå¨ãïìïò±¬ ð²®÷éäôè¬ ð²®èåéçèô©Š        åîäŠ    åìóåéæ ã ½½ ³ ôèåîŠ        ­­ ¯ªª ãòåáôåó á Ìáùåò ÷éôè ãïìïò¬ ÷éäôè áîä èåéçèô éî Ðïéîôó ª¯Š        ­­ óôáôéã ÌáùåòÃïìïò ª ãòåáôå¨ãïîóô Ãïìïò´Â¦ ãïìïò¬ ÇÌæìïáô ÷éäôè¬ ÇÌæìïáô èåéçèô©»Š        ­­Š        ­­ ¯ªª Ãòåáôåó á æõìì­óãòååî Ìáùåò ÷éôè á çòáäéåîô âåô÷ååî óôáòô áîä åîä éî ôèå äéòåãôéïî ïæ ö® ª¯Š        ­­ óôáôéã ÌáùåòÇòáäéåîôª ãòåáôå¨ãïîóô Ãïìïò´Â¦ óôáòô¬ ãïîóô Ãïìïò´Â¦ åîä¬ ãïîóô Öåã²¦ ö©»Š        ìïãáì ãïìïò± ½ ãã®ãïîöåòôÃïìïò¨ðáòáíóÛ±Ý¬ ¢´â¢©Š        ìïãáì ð² ½ ðáòáíóÛ²ÝŠ        ìïãáì ð²ôùðå ½ ôùðå¨ð²©Š        éæ ð²ôùðå ½½ ¢ôáâìå¢ ôèåîŠ            ìáùåò ½ ãã®ÌáùåòÇòáäéåîôºãòåáôå¨ãïìïò±¬ ãã®ãïîöåòôÃïìïò¨ð²¬ ¢´â¢©¬ ðáòáíóÛ³Ý©Š        åìóåŠ            ìáùåò ½ ãã®ÌáùåòÃïìïòºãòåáôå¨ãïìïò±¬ ð²¬ ðáòáíóÛ³Ý©Š        åîäŠ    åîäŠ    òåôõòî ìáùåòŠåîäŠŠæõîãôéïî äéóðìáù®îå÷Óðòéôå¨óïõòãå¬ ø¬ ù¬ ðáòáíó©Š    ìïãáì óðòéôåÃìáóó ½ ãã®ÓðòéôåŠ    ìïãáì óãáìå¹ ½ æáìóåŠŠ    éæ ôùðå¨ø© ½½ ¢ôáâìå¢ áîä îïô ø®ø ôèåîŠ        ­­ ø éó ðáòáíóŠ        ðáòáíó ½ øŠ        ø ½ îéìŠ        ù ½ îéìŠ    åîäŠŠ    ìïãáì ðáòáíó ½ ðáòáíó ïò ÐÁÒÁÍÓßÅÍÐÔÙŠ    éæ ðáòáíó®óãáìå¹ ïò ðáòáíó®ãáðÉîóåôó ôèåîŠ        óðòéôåÃìáóó ½ ããõé®Óãáìå¹ÓðòéôåŠ        óãáìå¹ ½ ôòõåŠ        ðáòáíó®ãáðÉîóåôó ½ ðáòáíó®ãáðÉîóåôó ïò ÒÅÃÔßÚÅÒÏŠ        ðáòáíó®òåãô ½ ðáòáíó®òåãô ïò ÒÅÃÔßÚÅÒÏŠ    åîäŠŠ    ìïãáì óðòéôåŠ    ÷èéìå ôòõå äïŠ        ­­ ãòåáôå óðòéôåŠ        éæ îïô óïõòãå ôèåîŠ            óðòéôå ½ óðòéôåÃìáóóºãòåáôå¨©Š            âòåáëŠ        åîäŠŠ        ìïãáì óïõòãåÔùðå ½ ôùðå¨óïõòãå©Š        éæ óïõòãåÔùðå ½½ ¢óôòéîç¢ ôèåîŠ            éæ óôòéîç®âùôå¨óïõòãå© ½½ ³µ ôèåî ­­ æéòóô ãèáò éó £Š                ­­ ãòåáôå óðòéôå æòïí óðòéôåÆòáíåŠ                éæ îïô óãáìå¹ ôèåîŠ                    óðòéôå ½ óðòéôåÃìáóóºãòåáôå×éôèÓðòéôåÆòáíåÎáíå¨óôòéîç®óõâ¨óïõòãå¬ ²©©Š                åìóåŠ                    óðòéôå ½ óðòéôåÃìáóóºãòåáôå×éôèÓðòéôåÆòáíåÎáíå¨óôòéîç®óõâ¨óïõòãå¬ ²©¬ ðáòáíó®ãáðÉîóåôó©Š                åîäŠ                âòåáëŠ            åîäŠŠ            ­­ ãòåáôå óðòéôå æòïí éíáçå æéìåŠ            éæ äéóðìáù®ÔÅØÔÕÒÅÓßÐÉØÅÌßÆÏÒÍÁÔÛóïõòãåÝ ôèåîŠ                ãã®Ôåøôõòå²ÄºóåôÄåæáõìôÁìðèáÐéøåìÆïòíáô¨äéóðìáù®ÔÅØÔÕÒÅÓßÐÉØÅÌßÆÏÒÍÁÔÛóïõòãåÝ©Š            åîäŠ            éæ îïô óãáìå¹ ôèåîŠ                óðòéôå ½ óðòéôåÃìáóóºãòåáôå¨óïõòãå©Š            åìóåŠ                óðòéôå ½ óðòéôåÃìáóóºãòåáôå¨óïõòãå¬ ðáòáíó®òåãô¬ ðáòáíó®ãáðÉîóåôó©Š            åîäŠ            éæ äéóðìáù®ÔÅØÔÕÒÅÓßÐÉØÅÌßÆÏÒÍÁÔÛóïõòãåÝ ôèåîŠ                ãã®Ôåøôõòå²ÄºóåôÄåæáõìôÁìðèáÐéøåìÆïòíáô¨ãã®ÔÅØÔÕÒÅ²ßÄßÐÉØÅÌßÆÏÒÍÁÔßÂÇÒßÁ¸¸¸¸©Š            åîäŠ            âòåáëŠ        åìóåéæ óïõòãåÔùðå þ½ ¢õóåòäáôá¢ ôèåîŠ            åòòïò¨óôòéîç®æïòíáô¨¢äéóðìáù®îå÷Óðòéôå¨© ­ éîöáìéä óïõòãå ôùðå Ü¢¥óÜ¢¢¬ óïõòãåÔùðå©¬ °©Š        åìóåŠ            óïõòãåÔùðå ½ ôïìõá®ôùðå¨óïõòãå©Š            éæ óïõòãåÔùðå ½½ ¢ãã®ÓðòéôåÆòáíå¢ ôèåîŠ                éæ îïô óãáìå¹ ôèåîŠ                    óðòéôå ½ óðòéôåÃìáóóºãòåáôå×éôèÓðòéôåÆòáíå¨óïõòãå©Š                åìóåŠ                    óðòéôå ½ óðòéôåÃìáóóºãòåáôå×éôèÓðòéôåÆòáíå¨óïõòãå¬ ðáòáíó®ãáðÉîóåôó©Š                åîäŠ            åìóåéæ óïõòãåÔùðå ½½ ¢ãã®Ôåøôõòå²Ä¢ ôèåîŠ                óðòéôå ½ óðòéôåÃìáóóºãòåáôå×éôèÔåøôõòå¨óïõòãå©Š            åìóåŠ                åòòïò¨óôòéîç®æïòíáô¨¢äéóðìáù®îå÷Óðòéôå¨© ­ éîöáìéä óïõòãå ôùðå Ü¢¥óÜ¢¢¬ óïõòãåÔùðå©¬ °©Š            åîäŠ        åîäŠ        âòåáëŠ    åîäŠŠ    éæ óðòéôå ôèåîŠ        éæ ø áîä ù ôèåî óðòéôåºóåôÐïóéôéïî¨ø¬ ù© åîäŠ        éæ ðáòáíó®óéúå ôèåî óðòéôåºóåôÃïîôåîôÓéúå¨ðáòáíó®óéúå© åîäŠ    åìóåŠ        åòòïò¨óôòéîç®æïòíáô¨¢äéóðìáù®îå÷Óðòéôå¨© ­ ãòåáôå óðòéôå æáéìõòå¬ óïõòãå Ü¢¥óÜ¢¢¬ ôïóôòéîç¨óïõòãå©©¬ °©Š    åîäŠŠ    òåôõòî óðòéôåŠåîäŠŠæõîãôéïî äéóðìáù®îå÷ÓðòéôåÆòáíå¨óïõòãå¬ ®®®©Š    ìïãáì æòáíåŠ    éæ ôùðå¨óïõòãå© ½½ ¢óôòéîç¢ ôèåîŠ        éæ óôòéîç®âùôå¨óïõòãå© ½½ ³µ ôèåî ­­ æéòóô ãèáò éó £Š            óïõòãå ½ óôòéîç®óõâ¨óïõòãå¬ ²©Š        åîäŠ        æòáíå ½ óðòéôåÆòáíåÃáãèåºçåôÓðòéôåÆòáíå¨óïõòãå©Š        éæ îïô æòáíå ôèåîŠ            åòòïò¨óôòéîç®æïòíáô¨¢äéóðìáù®îå÷ÓðòéôåÆòáíå¨© ­ éîöáìéä æòáíå îáíå Ü¢¥óÜ¢¢¬ ôïóôòéîç¨óïõòãå©©¬ °©Š        åîäŠ    åìóåéæ ôïìõá®ôùðå¨óïõòãå© ½½ ¢ãã®Ôåøôõòå²Ä¢ ôèåîŠ        æòáíå ½ ãã®ÓðòéôåÆòáíåºãòåáôå×éôèÔåøôõòå¨óïõòãå¬ ®®®©Š    åìóåŠ        åòòïò¨¢äéóðìáù®îå÷ÓðòéôåÆòáíå¨© ­ éîöáìéä ðáòáíåôåòó¢¬ °©Š    åîäŠ    òåôõòî æòáíåŠåîäŠŠæõîãôéïî äéóðìáù®îå÷Æòáíåó¨ðáôôåòî¬ âåçéî¬ ìåîçôè¬ éóÒåöåòóåä©Š    ìïãáì æòáíåó ½ ûýŠ    ìïãáì óôåð ½ ±Š    ìïãáì ìáóô ½ âåçéî « ìåîçôè ­ ±Š    éæ éóÒåöåòóåä ôèåîŠ        ìáóô¬ âåçéî ½ âåçéî¬ ìáóôŠ        óôåð ½ ­±Š    åîäŠŠ    æïò éîäåø ½ âåçéî¬ ìáóô¬ óôåð äïŠ        ìïãáì æòáíåÎáíå ½ óôòéîç®æïòíáô¨ðáôôåòî¬ éîäåø©Š        ìïãáì æòáíå ½ óðòéôåÆòáíåÃáãèåºçåôÓðòéôåÆòáíå¨æòáíåÎáíå©Š        éæ îïô æòáíå ôèåîŠ            åòòïò¨óôòéîç®æïòíáô¨¢äéóðìáù®îå÷Æòáíåó¨© ­ éîöáìéä æòáíå îáíå ¥ó¢¬ ôïóôòéîç¨æòáíåÎáíå©©¬ °©Š        åîäŠ        æòáíåóÛ£æòáíåó « ±Ý ½ æòáíåŠ    åîäŠ    òåôõòî æòáíåóŠåîäŠŠìïãáì æõîãôéïî îå÷Áîéíáôéïî¨æòáíåó¬ ôéíå©Š    ìïãáì ãïõîô ½ £æòáíåóŠ    áóóåòô¨ãïõîô ¾ °¬ ¢äéóðìáù®îå÷Áîéíáôéïî¨© ­ éîöáìéä æòáíåó¢©Š    ôéíå ½ ôéíå ïò ±®° ¯ ãïõîôŠ    òåôõòî ãã®Áîéíáôéïîºãòåáôå×éôèÓðòéôåÆòáíåó¨æòáíåó¬ ôéíå©¬Š           ãã®Óðòéôåºãòåáôå×éôèÓðòéôåÆòáíå¨æòáíåóÛ±Ý©ŠåîäŠŠæõîãôéïî äéóðìáù®îå÷Áîéíáôéïî¨®®®©Š    ìïãáì ðáòáíó ½ û®®®ýŠ    ìïãáì ã ½ £ðáòáíóŠ    éæ ã ½½ ² ôèåîŠ        ­­ æòáíåó¬ ôéíåŠ        òåôõòî îå÷Áîéíáôéïî¨ðáòáíóÛ±Ý¬ ðáòáíóÛ²Ý©Š    åìóåéæ ã ½½ ´ ôèåîŠ        ­­ ðáôôåòî¬ âåçéî¬ ìåîçôè¬ ôéíåŠ        ìïãáì æòáíåó ½ äéóðìáù®îå÷Æòáíåó¨ðáòáíóÛ±Ý¬ ðáòáíóÛ²Ý¬ ðáòáíóÛ³Ý©Š        òåôõòî îå÷Áîéíáôéïî¨æòáíåó¬ ðáòáíóÛ´Ý©Š    åìóåéæ ã ½½ µ ôèåîŠ        ­­ ðáôôåòî¬ âåçéî¬ ìåîçôè¬ éóÒåöåòóåä¬ ôéíåŠ        ìïãáì æòáíåó ½ äéóðìáù®îå÷Æòáíåó¨ðáòáíóÛ±Ý¬ ðáòáíóÛ²Ý¬ ðáòáíóÛ³Ý¬ ðáòáíóÛ´Ý©Š        òåôõòî îå÷Áîéíáôéïî¨æòáíåó¬ ðáòáíóÛµÝ©Š    åìóåŠ        åòòïò¨¢äéóðìáù®îå÷Áîéíáôéïî¨© ­ éîöáìéä ðáòáíåôåòó¢©Š    åîäŠåîäŠŠæõîãôéïî äéóðìáù®ìïáäÉíáçå¨éíáçåÆéìåîáíå¬ ãáììâáãë©Š    éæ îïô ãáììâáãë ôèåîŠ        òåôõòî ôåøôõòåÃáãèåºáääÉíáçå¨éíáçåÆéìåîáíå©Š    åìóåŠ        ôåøôõòåÃáãèåºáääÉíáçåÁóùîã¨éíáçåÆéìåîáíå¬ ãáììâáãë©Š    åîäŠåîäŠŠìïãáì æéìåÕôéìó ½ ãã®ÆéìåÕôéìóºçåôÉîóôáîãå¨©Šæõîãôéïî äéóðìáù®çåôÉíáçå¨éíáçåÆéìåîáíå©Š    ìïãáì æõììðáôè ½ æéìåÕôéìóºæõììÐáôèÆïòÆéìåîáíå¨éíáçåÆéìåîáíå©Š    òåôõòî ôåøôõòåÃáãèåºçåôÔåøôõòåÆïòËåù¨æõììðáôè©ŠåîäŠŠæõîãôéïî äéóðìáù®òåíïöåÉíáçå¨éíáçåÆéìåîáíå©Š    ôåøôõòåÃáãèåºòåíïöåÔåøôõòåÆïòËåù¨éíáçåÆéìåîáíå©ŠåîäŠŠæõîãôéïî äéóðìáù®ìïáäÓðòéôåÆòáíåó¨äáôáÆéìåîáíå¬ éíáçåÆéìåîáíå¬ ãáììâáãë©Š    éæ äéóðìáù®ÔÅØÔÕÒÅÓßÐÉØÅÌßÆÏÒÍÁÔÛéíáçåÆéìåîáíåÝ ôèåîŠ        ãã®Ôåøôõòå²ÄºóåôÄåæáõìôÁìðèáÐéøåìÆïòíáô¨äéóðìáù®ÔÅØÔÕÒÅÓßÐÉØÅÌßÆÏÒÍÁÔÛéíáçåÆéìåîáíåÝ©Š    åîäŠ    éæ îïô ãáììâáãë ôèåîŠ        óðòéôåÆòáíåÃáãèåºáääÓðòéôåÆòáíåó¨äáôáÆéìåîáíå¬ éíáçåÆéìåîáíå©Š    åìóåŠ        óðòéôåÆòáíåÃáãèåºáääÓðòéôåÆòáíåóÁóùîã¨äáôáÆéìåîáíå¬ éíáçåÆéìåîáíå¬ ãáììâáãë©Š    åîäŠ    éæ äéóðìáù®ÔÅØÔÕÒÅÓßÐÉØÅÌßÆÏÒÍÁÔÛéíáçåÆéìåîáíåÝ ôèåîŠ        ãã®Ôåøôõòå²ÄºóåôÄåæáõìôÁìðèáÐéøåìÆïòíáô¨ãã®ÔÅØÔÕÒÅ²ßÄßÐÉØÅÌßÆÏÒÍÁÔßÂÇÒßÁ¸¸¸¸©Š    åîäŠåîäŠŠæõîãôéïî äéóðìáù®òåíïöåÓðòéôåÆòáíåó¨äáôáÆéìåîáíå¬ éíáçåÆéìåîáíå©Š    óðòéôåÆòáíåÃáãèåºòåíïöåÓðòéôåÆòáíåóÆòïíÆéìå¨äáôáÆéìåîáíå©Š    éæ éíáçåÆéìåîáíå ôèåîŠ        äéóðìáù®òåíïöåÉíáçå¨éíáçåÆéìåîáíå©Š    åîäŠåîäŠŠæõîãôéïî äéóðìáù®òåíïöåÓðòéôåÆòáíå¨éíáçåÆéìåîáíå©Š    óðòéôåÆòáíåÃáãèåºòåíïöåÓðòéôåÆòáíåÂùÎáíå¨éíáçåÆéìåîáíå©ŠåîäŠŠæõîãôéïî äéóðìáù®óåôÔåøôõòåÐéøåìÆïòíáô¨éíáçåÆéìåîáíå¬ æïòíáô©Š    äéóðìáù®ÔÅØÔÕÒÅÓßÐÉØÅÌßÆÏÒÍÁÔÛéíáçåÆéìåîáíåÝ ½ æïòíáôŠåîäŠŠæõîãôéïî äéóðìáù®óåôÁîéíáôéïîÃáãèå¨îáíå¬ áîéíáôéïî©Š    áîéíáôéïîÃáãèåºáääÁîéíáôéïî¨áîéíáôéïî¬ îáíå©ŠåîäŠŠæõîãôéïî äéóðìáù®çåôÁîéíáôéïîÃáãèå¨îáíå©Š    òåôõòî áîéíáôéïîÃáãèåºçåôÁîéíáôéïî¨îáíå©ŠåîäŠŠæõîãôéïî äéóðìáù®òåíïöåÁîéíáôéïîÃáãèå¨îáíå©Š    áîéíáôéïîÃáãèåºòåíïöåÁîéíáôéïî¨îáíå©ŠåîäŠŠæõîãôéïî äéóðìáù®òåíïöåÕîõóåäÓðòéôåÆòáíåó¨©Š    óðòéôåÆòáíåÃáãèåºòåíïöåÕîõóåäÓðòéôåÆòáíåó¨©Š    ôåøôõòåÃáãèåºòåíïöåÕîõóåäÔåøôõòåó¨©ŠåîäŠŠòåôõòî äéóðìáùŠ
+--[[
+
+Copyright (c) 2011-2014 chukong-inc.com
+
+Permission is hereby granted, free of charge, to any person obtaining a copy
+of this software and associated documentation files (the "Software"), to deal
+in the Software without restriction, including without limitation the rights
+to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
+copies of the Software, and to permit persons to whom the Software is
+furnished to do so, subject to the following conditions:
+
+The above copyright notice and this permission notice shall be included in
+all copies or substantial portions of the Software.
+
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR
+IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY,
+FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE
+AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER
+LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
+OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN
+THE SOFTWARE.
+
+]]
+
+local display = {}
+
+local director = cc.Director:getInstance()
+local view = director:getOpenGLView()
+
+if not view then
+    local width = 960
+    local height = 640
+    if CC_DESIGN_RESOLUTION then
+        if CC_DESIGN_RESOLUTION.width then
+            width = CC_DESIGN_RESOLUTION.width
+        end
+        if CC_DESIGN_RESOLUTION.height then
+            height = CC_DESIGN_RESOLUTION.height
+        end
+    end
+    view = cc.GLViewImpl:createWithRect("Cocos2d-Lua", cc.rect(0, 0, width, height))
+    director:setOpenGLView(view)
+end
+
+local framesize = view:getFrameSize()
+local textureCache = director:getTextureCache()
+local spriteFrameCache = cc.SpriteFrameCache:getInstance()
+local animationCache = cc.AnimationCache:getInstance()
+
+-- auto scale
+local function checkResolution(r)
+    r.width = checknumber(r.width)
+    r.height = checknumber(r.height)
+    r.autoscale = string.upper(r.autoscale)
+    assert(r.width > 0 and r.height > 0,
+        string.format("display - invalid design resolution size %d, %d", r.width, r.height))
+end
+
+local function setDesignResolution(r, framesize)
+    if r.autoscale == "FILL_ALL" then
+        view:setDesignResolutionSize(framesize.width, framesize.height, cc.ResolutionPolicy.FILL_ALL)
+    else
+        local scaleX, scaleY = framesize.width / r.width, framesize.height / r.height
+        local width, height = framesize.width, framesize.height
+        if r.autoscale == "FIXED_WIDTH" then
+            width = framesize.width / scaleX
+            height = framesize.height / scaleX
+            view:setDesignResolutionSize(width, height, cc.ResolutionPolicy.NO_BORDER)
+        elseif r.autoscale == "FIXED_HEIGHT" then
+            width = framesize.width / scaleY
+            height = framesize.height / scaleY
+            view:setDesignResolutionSize(width, height, cc.ResolutionPolicy.NO_BORDER)
+        elseif r.autoscale == "EXACT_FIT" then
+            view:setDesignResolutionSize(r.width, r.height, cc.ResolutionPolicy.EXACT_FIT)
+        elseif r.autoscale == "NO_BORDER" then
+            view:setDesignResolutionSize(r.width, r.height, cc.ResolutionPolicy.NO_BORDER)
+        elseif r.autoscale == "SHOW_ALL" then
+            view:setDesignResolutionSize(r.width, r.height, cc.ResolutionPolicy.SHOW_ALL)
+        else
+            printError(string.format("display - invalid r.autoscale \"%s\"", r.autoscale))
+        end
+    end
+end
+
+local function setConstants()
+    local sizeInPixels = view:getFrameSize()
+    display.sizeInPixels = {width = sizeInPixels.width, height = sizeInPixels.height}
+
+    local viewsize = director:getWinSize()
+    display.contentScaleFactor = director:getContentScaleFactor()
+    display.size               = {width = viewsize.width, height = viewsize.height}
+    display.width              = display.size.width
+    display.height             = display.size.height
+    display.cx                 = display.width / 2
+    display.cy                 = display.height / 2
+    display.c_left             = -display.width / 2
+    display.c_right            = display.width / 2
+    display.c_top              = display.height / 2
+    display.c_bottom           = -display.height / 2
+    display.left               = 0
+    display.right              = display.width
+    display.top                = display.height
+    display.bottom             = 0
+    display.center             = cc.p(display.cx, display.cy)
+    display.left_top           = cc.p(display.left, display.top)
+    display.left_bottom        = cc.p(display.left, display.bottom)
+    display.left_center        = cc.p(display.left, display.cy)
+    display.right_top          = cc.p(display.right, display.top)
+    display.right_bottom       = cc.p(display.right, display.bottom)
+    display.right_center       = cc.p(display.right, display.cy)
+    display.top_center         = cc.p(display.cx, display.top)
+    display.top_bottom         = cc.p(display.cx, display.bottom)
+
+    printInfo(string.format("# display.sizeInPixels         = {width = %0.2f, height = %0.2f}", display.sizeInPixels.width, display.sizeInPixels.height))
+    printInfo(string.format("# display.size                 = {width = %0.2f, height = %0.2f}", display.size.width, display.size.height))
+    printInfo(string.format("# display.contentScaleFactor   = %0.2f", display.contentScaleFactor))
+    printInfo(string.format("# display.width                = %0.2f", display.width))
+    printInfo(string.format("# display.height               = %0.2f", display.height))
+    printInfo(string.format("# display.cx                   = %0.2f", display.cx))
+    printInfo(string.format("# display.cy                   = %0.2f", display.cy))
+    printInfo(string.format("# display.left                 = %0.2f", display.left))
+    printInfo(string.format("# display.right                = %0.2f", display.right))
+    printInfo(string.format("# display.top                  = %0.2f", display.top))
+    printInfo(string.format("# display.bottom               = %0.2f", display.bottom))
+    printInfo(string.format("# display.c_left               = %0.2f", display.c_left))
+    printInfo(string.format("# display.c_right              = %0.2f", display.c_right))
+    printInfo(string.format("# display.c_top                = %0.2f", display.c_top))
+    printInfo(string.format("# display.c_bottom             = %0.2f", display.c_bottom))
+    printInfo(string.format("# display.center               = {x = %0.2f, y = %0.2f}", display.center.x, display.center.y))
+    printInfo(string.format("# display.left_top             = {x = %0.2f, y = %0.2f}", display.left_top.x, display.left_top.y))
+    printInfo(string.format("# display.left_bottom          = {x = %0.2f, y = %0.2f}", display.left_bottom.x, display.left_bottom.y))
+    printInfo(string.format("# display.left_center          = {x = %0.2f, y = %0.2f}", display.left_center.x, display.left_center.y))
+    printInfo(string.format("# display.right_top            = {x = %0.2f, y = %0.2f}", display.right_top.x, display.right_top.y))
+    printInfo(string.format("# display.right_bottom         = {x = %0.2f, y = %0.2f}", display.right_bottom.x, display.right_bottom.y))
+    printInfo(string.format("# display.right_center         = {x = %0.2f, y = %0.2f}", display.right_center.x, display.right_center.y))
+    printInfo(string.format("# display.top_center           = {x = %0.2f, y = %0.2f}", display.top_center.x, display.top_center.y))
+    printInfo(string.format("# display.top_bottom           = {x = %0.2f, y = %0.2f}", display.top_bottom.x, display.top_bottom.y))
+    printInfo("#")
+end
+
+function display.setAutoScale(configs)
+    if type(configs) ~= "table" then return end
+
+    checkResolution(configs)
+    if type(configs.callback) == "function" then
+        local c = configs.callback(framesize)
+        for k, v in pairs(c or {}) do
+            configs[k] = v
+        end
+        checkResolution(configs)
+    end
+
+    setDesignResolution(configs, framesize)
+
+    printInfo(string.format("# design resolution size       = {width = %0.2f, height = %0.2f}", configs.width, configs.height))
+    printInfo(string.format("# design resolution autoscale  = %s", configs.autoscale))
+    setConstants()
+end
+
+if type(CC_DESIGN_RESOLUTION) == "table" then
+    display.setAutoScale(CC_DESIGN_RESOLUTION)
+end
+
+display.COLOR_WHITE = cc.c3b(255, 255, 255)
+display.COLOR_BLACK = cc.c3b(0, 0, 0)
+display.COLOR_RED   = cc.c3b(255, 0, 0)
+display.COLOR_GREEN = cc.c3b(0, 255, 0)
+display.COLOR_BLUE  = cc.c3b(0, 0, 255)
+
+display.AUTO_SIZE      = 0
+display.FIXED_SIZE     = 1
+display.LEFT_TO_RIGHT  = 0
+display.RIGHT_TO_LEFT  = 1
+display.TOP_TO_BOTTOM  = 2
+display.BOTTOM_TO_TOP  = 3
+
+display.CENTER        = cc.p(0.5, 0.5)
+display.LEFT_TOP      = cc.p(0, 1)
+display.LEFT_BOTTOM   = cc.p(0, 0)
+display.LEFT_CENTER   = cc.p(0, 0.5)
+display.RIGHT_TOP     = cc.p(1, 1)
+display.RIGHT_BOTTOM  = cc.p(1, 0)
+display.RIGHT_CENTER  = cc.p(1, 0.5)
+display.CENTER_TOP    = cc.p(0.5, 1)
+display.CENTER_BOTTOM = cc.p(0.5, 0)
+
+display.SCENE_TRANSITIONS = {
+    CROSSFADE       = cc.TransitionCrossFade,
+    FADE            = {cc.TransitionFade, cc.c3b(0, 0, 0)},
+    FADEBL          = cc.TransitionFadeBL,
+    FADEDOWN        = cc.TransitionFadeDown,
+    FADETR          = cc.TransitionFadeTR,
+    FADEUP          = cc.TransitionFadeUp,
+    FLIPANGULAR     = {cc.TransitionFlipAngular, cc.TRANSITION_ORIENTATION_LEFT_OVER},
+    FLIPX           = {cc.TransitionFlipX, cc.TRANSITION_ORIENTATION_LEFT_OVER},
+    FLIPY           = {cc.TransitionFlipY, cc.TRANSITION_ORIENTATION_UP_OVER},
+    JUMPZOOM        = cc.TransitionJumpZoom,
+    MOVEINB         = cc.TransitionMoveInB,
+    MOVEINL         = cc.TransitionMoveInL,
+    MOVEINR         = cc.TransitionMoveInR,
+    MOVEINT         = cc.TransitionMoveInT,
+    PAGETURN        = {cc.TransitionPageTurn, false},
+    ROTOZOOM        = cc.TransitionRotoZoom,
+    SHRINKGROW      = cc.TransitionShrinkGrow,
+    SLIDEINB        = cc.TransitionSlideInB,
+    SLIDEINL        = cc.TransitionSlideInL,
+    SLIDEINR        = cc.TransitionSlideInR,
+    SLIDEINT        = cc.TransitionSlideInT,
+    SPLITCOLS       = cc.TransitionSplitCols,
+    SPLITROWS       = cc.TransitionSplitRows,
+    TURNOFFTILES    = cc.TransitionTurnOffTiles,
+    ZOOMFLIPANGULAR = cc.TransitionZoomFlipAngular,
+    ZOOMFLIPX       = {cc.TransitionZoomFlipX, cc.TRANSITION_ORIENTATION_LEFT_OVER},
+    ZOOMFLIPY       = {cc.TransitionZoomFlipY, cc.TRANSITION_ORIENTATION_UP_OVER},
+}
+
+display.TEXTURES_PIXEL_FORMAT = {}
+
+display.DEFAULT_TTF_FONT        = "Arial"
+display.DEFAULT_TTF_FONT_SIZE   = 32
+
+
+local PARAMS_EMPTY = {}
+local RECT_ZERO = cc.rect(0, 0, 0, 0)
+
+local sceneIndex = 0
+function display.newScene(name, params)
+    params = params or PARAMS_EMPTY
+    sceneIndex = sceneIndex + 1
+    local scene
+    if not params.physics then
+        scene = cc.Scene:create()
+    else
+        scene = cc.Scene:createWithPhysics()
+    end
+    scene.name_ = string.format("%s:%d", name or "<unknown-scene>", sceneIndex)
+
+    if params.transition then
+        scene = display.wrapSceneWithTransition(scene, params.transition, params.time, params.more)
+    end
+
+    return scene
+end
+
+function display.wrapScene(scene, transition, time, more)
+    local key = string.upper(tostring(transition))
+
+    if key == "RANDOM" then
+        local keys = table.keys(display.SCENE_TRANSITIONS)
+        key = keys[math.random(1, #keys)]
+    end
+
+    if display.SCENE_TRANSITIONS[key] then
+        local t = display.SCENE_TRANSITIONS[key]
+        time = time or 0.2
+        more = more or t[2]
+        if type(t) == "table" then
+            scene = t[1]:create(time, scene, more)
+        else
+            scene = t:create(time, scene)
+        end
+    else
+        error(string.format("display.wrapScene() - invalid transition %s", tostring(transition)))
+    end
+    return scene
+end
+
+function display.runScene(newScene, transition, time, more)
+    if director:getRunningScene() then
+        if transition then
+            newScene = display.wrapScene(newScene, transition, time, more)
+        end
+        director:replaceScene(newScene)
+    else
+        director:runWithScene(newScene)
+    end
+end
+
+function display.getRunningScene()
+    return director:getRunningScene()
+end
+
+function display.newNode()
+    return cc.Node:create()
+end
+
+function display.newLayer(...)
+    local params = {...}
+    local c = #params
+    local layer
+    if c == 0 then
+        -- /** creates a fullscreen black layer */
+        -- static Layer *create();
+        layer = cc.Layer:create()
+    elseif c == 1 then
+        -- /** creates a Layer with color. Width and height are the window size. */
+        -- static LayerColor * create(const Color4B& color);
+        layer = cc.LayerColor:create(cc.convertColor(params[1], "4b"))
+    elseif c == 2 then
+        -- /** creates a Layer with color, width and height in Points */
+        -- static LayerColor * create(const Color4B& color, const Size& size);
+        --
+        -- /** Creates a full-screen Layer with a gradient between start and end. */
+        -- static LayerGradient* create(const Color4B& start, const Color4B& end);
+        local color1 = cc.convertColor(params[1], "4b")
+        local p2 = params[2]
+        assert(type(p2) == "table" and (p2.width or p2.r), "display.newLayer() - invalid paramerter 2")
+        if p2.r then
+            layer = cc.LayerGradient:create(color1, cc.convertColor(p2, "4b"))
+        else
+            layer = cc.LayerColor:create(color1, p2.width, p2.height)
+        end
+    elseif c == 3 then
+        -- /** creates a Layer with color, width and height in Points */
+        -- static LayerColor * create(const Color4B& color, GLfloat width, GLfloat height);
+        --
+        -- /** Creates a full-screen Layer with a gradient between start and end in the direction of v. */
+        -- static LayerGradient* create(const Color4B& start, const Color4B& end, const Vec2& v);
+        local color1 = cc.convertColor(params[1], "4b")
+        local p2 = params[2]
+        local p2type = type(p2)
+        if p2type == "table" then
+            layer = cc.LayerGradient:create(color1, cc.convertColor(p2, "4b"), params[3])
+        else
+            layer = cc.LayerColor:create(color1, p2, params[3])
+        end
+    end
+    return layer
+end
+
+function display.newSprite(source, x, y, params)
+    local spriteClass = cc.Sprite
+    local scale9 = false
+
+    if type(x) == "table" and not x.x then
+        -- x is params
+        params = x
+        x = nil
+        y = nil
+    end
+
+    local params = params or PARAMS_EMPTY
+    if params.scale9 or params.capInsets then
+        spriteClass = ccui.Scale9Sprite
+        scale9 = true
+        params.capInsets = params.capInsets or RECT_ZERO
+        params.rect = params.rect or RECT_ZERO
+    end
+
+    local sprite
+    while true do
+        -- create sprite
+        if not source then
+            sprite = spriteClass:create()
+            break
+        end
+
+        local sourceType = type(source)
+        if sourceType == "string" then
+            if string.byte(source) == 35 then -- first char is #
+                -- create sprite from spriteFrame
+                if not scale9 then
+                    sprite = spriteClass:createWithSpriteFrameName(string.sub(source, 2))
+                else
+                    sprite = spriteClass:createWithSpriteFrameName(string.sub(source, 2), params.capInsets)
+                end
+                break
+            end
+
+            -- create sprite from image file
+            if display.TEXTURES_PIXEL_FORMAT[source] then
+                cc.Texture2D:setDefaultAlphaPixelFormat(display.TEXTURES_PIXEL_FORMAT[source])
+            end
+            if not scale9 then
+                sprite = spriteClass:create(source)
+            else
+                sprite = spriteClass:create(source, params.rect, params.capInsets)
+            end
+            if display.TEXTURES_PIXEL_FORMAT[source] then
+                cc.Texture2D:setDefaultAlphaPixelFormat(cc.TEXTURE2_D_PIXEL_FORMAT_BGR_A8888)
+            end
+            break
+        elseif sourceType ~= "userdata" then
+            error(string.format("display.newSprite() - invalid source type \"%s\"", sourceType), 0)
+        else
+            sourceType = tolua.type(source)
+            if sourceType == "cc.SpriteFrame" then
+                if not scale9 then
+                    sprite = spriteClass:createWithSpriteFrame(source)
+                else
+                    sprite = spriteClass:createWithSpriteFrame(source, params.capInsets)
+                end
+            elseif sourceType == "cc.Texture2D" then
+                sprite = spriteClass:createWithTexture(source)
+            else
+                error(string.format("display.newSprite() - invalid source type \"%s\"", sourceType), 0)
+            end
+        end
+        break
+    end
+
+    if sprite then
+        if x and y then sprite:setPosition(x, y) end
+        if params.size then sprite:setContentSize(params.size) end
+    else
+        error(string.format("display.newSprite() - create sprite failure, source \"%s\"", tostring(source)), 0)
+    end
+
+    return sprite
+end
+
+function display.newSpriteFrame(source, ...)
+    local frame
+    if type(source) == "string" then
+        if string.byte(source) == 35 then -- first char is #
+            source = string.sub(source, 2)
+        end
+        frame = spriteFrameCache:getSpriteFrame(source)
+        if not frame then
+            error(string.format("display.newSpriteFrame() - invalid frame name \"%s\"", tostring(source)), 0)
+        end
+    elseif tolua.type(source) == "cc.Texture2D" then
+        frame = cc.SpriteFrame:createWithTexture(source, ...)
+    else
+        error("display.newSpriteFrame() - invalid parameters", 0)
+    end
+    return frame
+end
+
+function display.newFrames(pattern, begin, length, isReversed)
+    local frames = {}
+    local step = 1
+    local last = begin + length - 1
+    if isReversed then
+        last, begin = begin, last
+        step = -1
+    end
+
+    for index = begin, last, step do
+        local frameName = string.format(pattern, index)
+        local frame = spriteFrameCache:getSpriteFrame(frameName)
+        if not frame then
+            error(string.format("display.newFrames() - invalid frame name %s", tostring(frameName)), 0)
+        end
+        frames[#frames + 1] = frame
+    end
+    return frames
+end
+
+local function newAnimation(frames, time)
+    local count = #frames
+    assert(count > 0, "display.newAnimation() - invalid frames")
+    time = time or 1.0 / count
+    return cc.Animation:createWithSpriteFrames(frames, time),
+           cc.Sprite:createWithSpriteFrame(frames[1])
+end
+
+function display.newAnimation(...)
+    local params = {...}
+    local c = #params
+    if c == 2 then
+        -- frames, time
+        return newAnimation(params[1], params[2])
+    elseif c == 4 then
+        -- pattern, begin, length, time
+        local frames = display.newFrames(params[1], params[2], params[3])
+        return newAnimation(frames, params[4])
+    elseif c == 5 then
+        -- pattern, begin, length, isReversed, time
+        local frames = display.newFrames(params[1], params[2], params[3], params[4])
+        return newAnimation(frames, params[5])
+    else
+        error("display.newAnimation() - invalid parameters")
+    end
+end
+
+function display.loadImage(imageFilename, callback)
+    if not callback then
+        return textureCache:addImage(imageFilename)
+    else
+        textureCache:addImageAsync(imageFilename, callback)
+    end
+end
+
+local fileUtils = cc.FileUtils:getInstance()
+function display.getImage(imageFilename)
+    local fullpath = fileUtils:fullPathForFilename(imageFilename)
+    return textureCache:getTextureForKey(fullpath)
+end
+
+function display.removeImage(imageFilename)
+    textureCache:removeTextureForKey(imageFilename)
+end
+
+function display.loadSpriteFrames(dataFilename, imageFilename, callback)
+    if display.TEXTURES_PIXEL_FORMAT[imageFilename] then
+        cc.Texture2D:setDefaultAlphaPixelFormat(display.TEXTURES_PIXEL_FORMAT[imageFilename])
+    end
+    if not callback then
+        spriteFrameCache:addSpriteFrames(dataFilename, imageFilename)
+    else
+        spriteFrameCache:addSpriteFramesAsync(dataFilename, imageFilename, callback)
+    end
+    if display.TEXTURES_PIXEL_FORMAT[imageFilename] then
+        cc.Texture2D:setDefaultAlphaPixelFormat(cc.TEXTURE2_D_PIXEL_FORMAT_BGR_A8888)
+    end
+end
+
+function display.removeSpriteFrames(dataFilename, imageFilename)
+    spriteFrameCache:removeSpriteFramesFromFile(dataFilename)
+    if imageFilename then
+        display.removeImage(imageFilename)
+    end
+end
+
+function display.removeSpriteFrame(imageFilename)
+    spriteFrameCache:removeSpriteFrameByName(imageFilename)
+end
+
+function display.setTexturePixelFormat(imageFilename, format)
+    display.TEXTURES_PIXEL_FORMAT[imageFilename] = format
+end
+
+function display.setAnimationCache(name, animation)
+    animationCache:addAnimation(animation, name)
+end
+
+function display.getAnimationCache(name)
+    return animationCache:getAnimation(name)
+end
+
+function display.removeAnimationCache(name)
+    animationCache:removeAnimation(name)
+end
+
+function display.removeUnusedSpriteFrames()
+    spriteFrameCache:removeUnusedSpriteFrames()
+    textureCache:removeUnusedTextures()
+end
+
+return display

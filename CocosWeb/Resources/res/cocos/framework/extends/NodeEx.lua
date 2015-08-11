@@ -1,1 +1,228 @@
-­­ΫΫΓοπωςιηθτ ¨γ© ²°±±­²°±΄ γθυλοξη­ιξγ®γονΠεςνισσιοξ ισ θεςεβω ηςαξτεδ¬ ζςεε οζ γθαςηε¬ το αξω πεςσοξ οβταιξιξη α γοπωοζ τθισ σοζτχαςε αξδ ασσογιατεδ δογυνεξτατιοξ ζιμεσ ¨τθε ΆΣοζτχαςεΆ©¬ το δεαμιξ τθε Σοζτχαςε χιτθουτ ςεστςιγτιοξ¬ ιξγμυδιξη χιτθουτ μινιτατιοξ τθε ςιηθτστο υσε¬ γοπω¬ νοδιζω¬ νεςηε¬ πυβμισθ¬ διστςιβυτε¬ συβμιγεξσε¬ αξδ―ος σεμμγοπιεσ οζ τθε Σοζτχαςε¬ αξδ το πεςνιτ πεςσοξσ το χθον τθε Σοζτχαςε ισζυςξισθεδ το δο σο¬ συβκεγτ το τθε ζομμοχιξη γοξδιτιοξσΊΤθε αβοφε γοπωςιηθτ ξοτιγε αξδ τθισ πεςνισσιοξ ξοτιγε σθαμμ βε ιξγμυδεδ ιξαμμ γοπιεσ ος συβσταξτιαμ ποςτιοξσ οζ τθε Σοζτχαςε®ΤΘΕ ΣΟΖΤΧΑÒΕ ΙΣ ΠÒΟΦΙΔΕΔ ΆΑΣ ΙΣΆ¬ ΧΙΤΘΟΥΤ ΧΑÒÒΑΞΤΩ ΟΖ ΑΞΩ ΛΙΞΔ¬ ΕΨΠÒΕΣΣ ΟÒΙΝΠΜΙΕΔ¬ ΙΞΓΜΥΔΙΞΗ ΒΥΤ ΞΟΤ ΜΙΝΙΤΕΔ ΤΟ ΤΘΕ ΧΑÒÒΑΞΤΙΕΣ ΟΖ ΝΕÒΓΘΑΞΤΑΒΙΜΙΤΩ¬ΖΙΤΞΕΣΣ ΖΟÒ Α ΠΑÒΤΙΓΥΜΑÒ ΠΥÒΠΟΣΕ ΑΞΔ ΞΟΞΙΞΖÒΙΞΗΕΝΕΞΤ® ΙΞ ΞΟ ΕΦΕΞΤ ΣΘΑΜΜ ΤΘΕΑΥΤΘΟÒΣ ΟÒ ΓΟΠΩÒΙΗΘΤ ΘΟΜΔΕÒΣ ΒΕ ΜΙΑΒΜΕ ΖΟÒ ΑΞΩ ΓΜΑΙΝ¬ ΔΑΝΑΗΕΣ ΟÒ ΟΤΘΕÒΜΙΑΒΙΜΙΤΩ¬ ΧΘΕΤΘΕÒ ΙΞ ΑΞ ΑΓΤΙΟΞ ΟΖ ΓΟΞΤÒΑΓΤ¬ ΤΟÒΤ ΟÒ ΟΤΘΕÒΧΙΣΕ¬ ΑÒΙΣΙΞΗ ΖÒΟΝ¬ΟΥΤ ΟΖ ΟÒ ΙΞ ΓΟΞΞΕΓΤΙΟΞ ΧΙΤΘ ΤΘΕ ΣΟΖΤΧΑÒΕ ΟÒ ΤΘΕ ΥΣΕ ΟÒ ΟΤΘΕÒ ΔΕΑΜΙΞΗΣ ΙΞΤΘΕ ΣΟΖΤΧΑÒΕ®έέμογαμ Ξοδε ½ γγ®Ξοδεζυξγτιοξ ΞοδεΊαδδ¨γθιμδ¬ ϊοςδες¬ ταη©    ιζ ταη τθεξ        σεμζΊαδδΓθιμδ¨γθιμδ¬ ϊοςδες¬ ταη©    εμσειζ ϊοςδες τθεξ        σεμζΊαδδΓθιμδ¨γθιμδ¬ ϊοςδες©    εμσε        σεμζΊαδδΓθιμδ¨γθιμδ©    εξδ    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊαδδΤο¨παςεξτ¬ ϊοςδες¬ ταη©    ιζ ταη τθεξ        παςεξτΊαδδΓθιμδ¨σεμζ¬ ϊοςδες¬ ταη©    εμσειζ ϊοςδες τθεξ        παςεξτΊαδδΓθιμδ¨σεμζ¬ ϊοςδες©    εμσε        παςεξτΊαδδΓθιμδ¨σεμζ©    εξδ    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊςενοφεΣεμζ¨©    σεμζΊςενοφεΖςονΠαςεξτ¨©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊαμιηξ¨αξγθοςΠοιξτ¬ ψ¬ ω©    σεμζΊσετΑξγθοςΠοιξτ¨αξγθοςΠοιξτ©    ςετυςξ σεμζΊνοφε¨ψ¬ ω©εξδζυξγτιοξ ΞοδεΊσθοχ¨©    σεμζΊσετΦισιβμε¨τςυε©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊθιδε¨©    σεμζΊσετΦισιβμε¨ζαμσε©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊνοφε¨ψ¬ ω©    ιζ ω τθεξ        σεμζΊσετΠοσιτιοξ¨ψ¬ ω©    εμσε        σεμζΊσετΠοσιτιοξ¨ψ©    εξδ    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊνοφεΤο¨αςησ©    τςαξσιτιοξ®νοφεΤο¨σεμζ¬ αςησ©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊνοφεΒω¨αςησ©    τςαξσιτιοξ®νοφεΒω¨σεμζ¬ αςησ©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊζαδεΙξ¨αςησ©    τςαξσιτιοξ®ζαδεΙξ¨σεμζ¬ αςησ©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊζαδεΟυτ¨αςησ©    τςαξσιτιοξ®ζαδεΟυτ¨σεμζ¬ αςησ©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊζαδεΤο¨αςησ©    τςαξσιτιοξ®ζαδεΤο¨σεμζ¬ αςησ©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊςοτατε¨ςοτατιοξ©    σεμζΊσετÒοτατιοξ¨ςοτατιοξ©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊςοτατεΤο¨αςησ©    τςαξσιτιοξ®ςοτατεΤο¨σεμζ¬ αςησ©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊςοτατεΒω¨αςησ©    τςαξσιτιοξ®ςοτατεΒω¨σεμζ¬ αςησ©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊσγαμεΤο¨αςησ©    τςαξσιτιοξ®σγαμεΤο¨σεμζ¬ αςησ©    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊοξΥπδατε¨γαμμβαγλ©    σεμζΊσγθεδυμεΥπδατεΧιτθΠςιοςιτωΜυα¨γαμμβαγλ¬ °©    ςετυςξ σεμζεξδΞοδε®σγθεδυμεΥπδατε ½ Ξοδε®οξΥπδατεζυξγτιοξ ΞοδεΊοξΞοδεΕφεξτ¨εφεξτΞανε¬ γαμμβαγλ©    ιζ ΆεξτεςΆ ½½ εφεξτΞανε τθεξ        σεμζ®οξΕξτεςΓαμμβαγλί ½ γαμμβαγλ    εμσειζ ΆεψιτΆ ½½ εφεξτΞανε τθεξ        σεμζ®οξΕψιτΓαμμβαγλί ½ γαμμβαγλ    εμσειζ ΆεξτεςΤςαξσιτιοξΖιξισθΆ ½½ εφεξτΞανε τθεξ        σεμζ®οξΕξτεςΤςαξσιτιοξΖιξισθΓαμμβαγλί ½ γαμμβαγλ    εμσειζ ΆεψιτΤςαξσιτιοξΣταςτΆ ½½ εφεξτΞανε τθεξ        σεμζ®οξΕψιτΤςαξσιτιοξΣταςτΓαμμβαγλί ½ γαμμβαγλ    εμσειζ ΆγμεαξυπΆ ½½ εφεξτΞανε τθεξ        σεμζ®οξΓμεαξυπΓαμμβαγλί ½ γαμμβαγλ    εξδ    σεμζΊεξαβμεΞοδεΕφεξτσ¨©εξδζυξγτιοξ ΞοδεΊεξαβμεΞοδεΕφεξτσ¨©    ιζ σεμζ®ισΞοδεΕφεξτΕξαβμεδί τθεξ        ςετυςξ σεμζ    εξδ    σεμζΊςεηιστεςΣγςιπτΘαξδμες¨ζυξγτιοξ¨στατε©        ιζ στατε ½½ ΆεξτεςΆ τθεξ            σεμζΊοξΕξτεςί¨©        εμσειζ στατε ½½ ΆεψιτΆ τθεξ            σεμζΊοξΕψιτί¨©        εμσειζ στατε ½½ ΆεξτεςΤςαξσιτιοξΖιξισθΆ τθεξ            σεμζΊοξΕξτεςΤςαξσιτιοξΖιξισθί¨©        εμσειζ στατε ½½ ΆεψιτΤςαξσιτιοξΣταςτΆ τθεξ            σεμζΊοξΕψιτΤςαξσιτιοξΣταςτί¨©        εμσειζ στατε ½½ ΆγμεαξυπΆ τθεξ            σεμζΊοξΓμεαξυπί¨©        εξδ    εξδ©    σεμζ®ισΞοδεΕφεξτΕξαβμεδί ½ τςυε    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊδισαβμεΞοδεΕφεξτσ¨©    σεμζΊυξςεηιστεςΣγςιπτΘαξδμες¨©    σεμζ®ισΞοδεΕφεξτΕξαβμεδί ½ ζαμσε    ςετυςξ σεμζεξδζυξγτιοξ ΞοδεΊοξΕξτες¨©εξδζυξγτιοξ ΞοδεΊοξΕψιτ¨©εξδζυξγτιοξ ΞοδεΊοξΕξτεςΤςαξσιτιοξΖιξισθ¨©εξδζυξγτιοξ ΞοδεΊοξΕψιτΤςαξσιτιοξΣταςτ¨©εξδζυξγτιοξ ΞοδεΊοξΓμεαξυπ¨©εξδζυξγτιοξ ΞοδεΊοξΕξτεςί¨©    σεμζΊοξΕξτες¨©    ιζ ξοτ σεμζ®οξΕξτεςΓαμμβαγλί τθεξ        ςετυςξ    εξδ    σεμζΊοξΕξτεςΓαμμβαγλί¨©εξδζυξγτιοξ ΞοδεΊοξΕψιτί¨©    σεμζΊοξΕψιτ¨©    ιζ ξοτ σεμζ®οξΕψιτΓαμμβαγλί τθεξ        ςετυςξ    εξδ    σεμζΊοξΕψιτΓαμμβαγλί¨©εξδζυξγτιοξ ΞοδεΊοξΕξτεςΤςαξσιτιοξΖιξισθί¨©    σεμζΊοξΕξτεςΤςαξσιτιοξΖιξισθ¨©    ιζ ξοτ σεμζ®οξΕξτεςΤςαξσιτιοξΖιξισθΓαμμβαγλί τθεξ        ςετυςξ    εξδ    σεμζΊοξΕξτεςΤςαξσιτιοξΖιξισθΓαμμβαγλί¨©εξδζυξγτιοξ ΞοδεΊοξΕψιτΤςαξσιτιοξΣταςτί¨©    σεμζΊοξΕψιτΤςαξσιτιοξΣταςτ¨©    ιζ ξοτ σεμζ®οξΕψιτΤςαξσιτιοξΣταςτΓαμμβαγλί τθεξ        ςετυςξ    εξδ    σεμζΊοξΕψιτΤςαξσιτιοξΣταςτΓαμμβαγλί¨©εξδζυξγτιοξ ΞοδεΊοξΓμεαξυπί¨©    σεμζΊοξΓμεαξυπ¨©    ιζ ξοτ σεμζ®οξΓμεαξυπΓαμμβαγλί τθεξ        ςετυςξ    εξδ    σεμζΊοξΓμεαξυπΓαμμβαγλί¨©εξδ
+--[[
+
+Copyright (c) 2011-2014 chukong-inc.com
+
+Permission is hereby granted, free of charge, to any person obtaining a copy
+of this software and associated documentation files (the "Software"), to deal
+in the Software without restriction, including without limitation the rights
+to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
+copies of the Software, and to permit persons to whom the Software is
+furnished to do so, subject to the following conditions:
+
+The above copyright notice and this permission notice shall be included in
+all copies or substantial portions of the Software.
+
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR
+IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY,
+FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE
+AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER
+LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
+OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN
+THE SOFTWARE.
+
+]]
+
+local Node = cc.Node
+
+function Node:add(child, zorder, tag)
+    if tag then
+        self:addChild(child, zorder, tag)
+    elseif zorder then
+        self:addChild(child, zorder)
+    else
+        self:addChild(child)
+    end
+    return self
+end
+
+function Node:addTo(parent, zorder, tag)
+    if tag then
+        parent:addChild(self, zorder, tag)
+    elseif zorder then
+        parent:addChild(self, zorder)
+    else
+        parent:addChild(self)
+    end
+    return self
+end
+
+function Node:removeSelf()
+    self:removeFromParent()
+    return self
+end
+
+function Node:align(anchorPoint, x, y)
+    self:setAnchorPoint(anchorPoint)
+    return self:move(x, y)
+end
+
+function Node:show()
+    self:setVisible(true)
+    return self
+end
+
+function Node:hide()
+    self:setVisible(false)
+    return self
+end
+
+function Node:move(x, y)
+    if y then
+        self:setPosition(x, y)
+    else
+        self:setPosition(x)
+    end
+    return self
+end
+
+function Node:moveTo(args)
+    transition.moveTo(self, args)
+    return self
+end
+
+function Node:moveBy(args)
+    transition.moveBy(self, args)
+    return self
+end
+
+function Node:fadeIn(args)
+    transition.fadeIn(self, args)
+    return self
+end
+
+function Node:fadeOut(args)
+    transition.fadeOut(self, args)
+    return self
+end
+
+function Node:fadeTo(args)
+    transition.fadeTo(self, args)
+    return self
+end
+
+function Node:rotate(rotation)
+    self:setRotation(rotation)
+    return self
+end
+
+function Node:rotateTo(args)
+    transition.rotateTo(self, args)
+    return self
+end
+
+function Node:rotateBy(args)
+    transition.rotateBy(self, args)
+    return self
+end
+
+function Node:scaleTo(args)
+    transition.scaleTo(self, args)
+    return self
+end
+
+function Node:onUpdate(callback)
+    self:scheduleUpdateWithPriorityLua(callback, 0)
+    return self
+end
+
+Node.scheduleUpdate = Node.onUpdate
+
+function Node:onNodeEvent(eventName, callback)
+    if "enter" == eventName then
+        self.onEnterCallback_ = callback
+    elseif "exit" == eventName then
+        self.onExitCallback_ = callback
+    elseif "enterTransitionFinish" == eventName then
+        self.onEnterTransitionFinishCallback_ = callback
+    elseif "exitTransitionStart" == eventName then
+        self.onExitTransitionStartCallback_ = callback
+    elseif "cleanup" == eventName then
+        self.onCleanupCallback_ = callback
+    end
+    self:enableNodeEvents()
+end
+
+function Node:enableNodeEvents()
+    if self.isNodeEventEnabled_ then
+        return self
+    end
+
+    self:registerScriptHandler(function(state)
+        if state == "enter" then
+            self:onEnter_()
+        elseif state == "exit" then
+            self:onExit_()
+        elseif state == "enterTransitionFinish" then
+            self:onEnterTransitionFinish_()
+        elseif state == "exitTransitionStart" then
+            self:onExitTransitionStart_()
+        elseif state == "cleanup" then
+            self:onCleanup_()
+        end
+    end)
+    self.isNodeEventEnabled_ = true
+
+    return self
+end
+
+function Node:disableNodeEvents()
+    self:unregisterScriptHandler()
+    self.isNodeEventEnabled_ = false
+    return self
+end
+
+
+function Node:onEnter()
+end
+
+function Node:onExit()
+end
+
+function Node:onEnterTransitionFinish()
+end
+
+function Node:onExitTransitionStart()
+end
+
+function Node:onCleanup()
+end
+
+function Node:onEnter_()
+    self:onEnter()
+    if not self.onEnterCallback_ then
+        return
+    end
+    self:onEnterCallback_()
+end
+
+function Node:onExit_()
+    self:onExit()
+    if not self.onExitCallback_ then
+        return
+    end
+    self:onExitCallback_()
+end
+
+function Node:onEnterTransitionFinish_()
+    self:onEnterTransitionFinish()
+    if not self.onEnterTransitionFinishCallback_ then
+        return
+    end
+    self:onEnterTransitionFinishCallback_()
+end
+
+function Node:onExitTransitionStart_()
+    self:onExitTransitionStart()
+    if not self.onExitTransitionStartCallback_ then
+        return
+    end
+    self:onExitTransitionStartCallback_()
+end
+
+function Node:onCleanup_()
+    self:onCleanup()
+    if not self.onCleanupCallback_ then
+        return
+    end
+    self:onCleanupCallback_()
+end

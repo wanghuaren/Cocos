@@ -1,1 +1,16 @@
-ιζ ξιμ ½½ γγ®Τεςςαιξ τθεξ    ςετυςξεξδγγ®Τεςςαιξ®ΓςαγλΖιψεδΤωπε ½ϋ    ΣΛΙÒΤ ½ °¬     ΙΞΓÒΕΑΣΕίΜΟΧΕÒ ½ ±¬ύγγ®Αξινατε³ΔΡυαμιτω ½ϋ‰ΡΥΑΜΙΤΩίΞΟΞΕ ½ °¬‰ΡΥΑΜΙΤΩίΜΟΧ  ½ ±¬‰ΡΥΑΜΙΤΩίΘΙΗΘ ½ ²¬ύ
+if nil == cc.Terrain then
+    return
+end
+
+cc.Terrain.CrackFixedType =
+{
+    SKIRT = 0, 
+    INCREASE_LOWER = 1,
+}
+
+cc.Animate3DQuality =
+{
+	QUALITY_NONE = 0,
+	QUALITY_LOW  = 1,
+	QUALITY_HIGH = 2,
+}

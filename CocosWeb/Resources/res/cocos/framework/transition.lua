@@ -1,1 +1,213 @@
-­­ÛÛŠŠÃïðùòéçèô ¨ã© ²°±±­²°±´ ãèõëïîç­éîã®ãïíŠŠÐåòíéóóéïî éó èåòåâù çòáîôåä¬ æòåå ïæ ãèáòçå¬ ôï áîù ðåòóïî ïâôáéîéîç á ãïðùŠïæ ôèéó óïæô÷áòå áîä áóóïãéáôåä äïãõíåîôáôéïî æéìåó ¨ôèå ¢Óïæô÷áòå¢©¬ ôï äåáìŠéî ôèå Óïæô÷áòå ÷éôèïõô òåóôòéãôéïî¬ éîãìõäéîç ÷éôèïõô ìéíéôáôéïî ôèå òéçèôóŠôï õóå¬ ãïðù¬ íïäéæù¬ íåòçå¬ ðõâìéóè¬ äéóôòéâõôå¬ óõâìéãåîóå¬ áîä¯ïò óåììŠãïðéåó ïæ ôèå Óïæô÷áòå¬ áîä ôï ðåòíéô ðåòóïîó ôï ÷èïí ôèå Óïæô÷áòå éóŠæõòîéóèåä ôï äï óï¬ óõâêåãô ôï ôèå æïììï÷éîç ãïîäéôéïîóºŠŠÔèå áâïöå ãïðùòéçèô îïôéãå áîä ôèéó ðåòíéóóéïî îïôéãå óèáìì âå éîãìõäåä éîŠáìì ãïðéåó ïò óõâóôáîôéáì ðïòôéïîó ïæ ôèå Óïæô÷áòå®ŠŠÔÈÅ ÓÏÆÔ×ÁÒÅ ÉÓ ÐÒÏÖÉÄÅÄ ¢ÁÓ ÉÓ¢¬ ×ÉÔÈÏÕÔ ×ÁÒÒÁÎÔÙ ÏÆ ÁÎÙ ËÉÎÄ¬ ÅØÐÒÅÓÓ ÏÒŠÉÍÐÌÉÅÄ¬ ÉÎÃÌÕÄÉÎÇ ÂÕÔ ÎÏÔ ÌÉÍÉÔÅÄ ÔÏ ÔÈÅ ×ÁÒÒÁÎÔÉÅÓ ÏÆ ÍÅÒÃÈÁÎÔÁÂÉÌÉÔÙ¬ŠÆÉÔÎÅÓÓ ÆÏÒ Á ÐÁÒÔÉÃÕÌÁÒ ÐÕÒÐÏÓÅ ÁÎÄ ÎÏÎÉÎÆÒÉÎÇÅÍÅÎÔ® ÉÎ ÎÏ ÅÖÅÎÔ ÓÈÁÌÌ ÔÈÅŠÁÕÔÈÏÒÓ ÏÒ ÃÏÐÙÒÉÇÈÔ ÈÏÌÄÅÒÓ ÂÅ ÌÉÁÂÌÅ ÆÏÒ ÁÎÙ ÃÌÁÉÍ¬ ÄÁÍÁÇÅÓ ÏÒ ÏÔÈÅÒŠÌÉÁÂÉÌÉÔÙ¬ ×ÈÅÔÈÅÒ ÉÎ ÁÎ ÁÃÔÉÏÎ ÏÆ ÃÏÎÔÒÁÃÔ¬ ÔÏÒÔ ÏÒ ÏÔÈÅÒ×ÉÓÅ¬ ÁÒÉÓÉÎÇ ÆÒÏÍ¬ŠÏÕÔ ÏÆ ÏÒ ÉÎ ÃÏÎÎÅÃÔÉÏÎ ×ÉÔÈ ÔÈÅ ÓÏÆÔ×ÁÒÅ ÏÒ ÔÈÅ ÕÓÅ ÏÒ ÏÔÈÅÒ ÄÅÁÌÉÎÇÓ ÉÎŠÔÈÅ ÓÏÆÔ×ÁÒÅ®ŠŠÝÝŠŠìïãáì ôòáîóéôéïî ½ ûýŠŠìïãáì ÁÃÔÉÏÎßÅÁÓÉÎÇ ½ ûýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÂÁÃËÉÎ¢Ý           ½ ûãã®ÅáóåÂáãëÉî¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÂÁÃËÉÎÏÕÔ¢Ý        ½ ûãã®ÅáóåÂáãëÉîÏõô¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÂÁÃËÏÕÔ¢Ý          ½ ûãã®ÅáóåÂáãëÏõô¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÂÏÕÎÃÅ¢Ý           ½ ûãã®ÅáóåÂïõîãå¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÂÏÕÎÃÅÉÎ¢Ý         ½ ûãã®ÅáóåÂïõîãåÉî¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÂÏÕÎÃÅÉÎÏÕÔ¢Ý      ½ ûãã®ÅáóåÂïõîãåÉîÏõô¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÂÏÕÎÃÅÏÕÔ¢Ý        ½ ûãã®ÅáóåÂïõîãåÏõô¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÅÌÁÓÔÉÃ¢Ý          ½ ûãã®ÅáóåÅìáóôéã¬ ²¬ °®³ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÅÌÁÓÔÉÃÉÎ¢Ý        ½ ûãã®ÅáóåÅìáóôéãÉî¬ ²¬ °®³ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÅÌÁÓÔÉÃÉÎÏÕÔ¢Ý     ½ ûãã®ÅáóåÅìáóôéãÉîÏõô¬ ²¬ °®³ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÅÌÁÓÔÉÃÏÕÔ¢Ý       ½ ûãã®ÅáóåÅìáóôéãÏõô¬ ²¬ °®³ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÅØÐÏÎÅÎÔÉÁÌÉÎ¢Ý    ½ ûãã®ÅáóåÅøðïîåîôéáìÉî¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÅØÐÏÎÅÎÔÉÁÌÉÎÏÕÔ¢Ý ½ ûãã®ÅáóåÅøðïîåîôéáìÉîÏõô¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÅØÐÏÎÅÎÔÉÁÌÏÕÔ¢Ý   ½ ûãã®ÅáóåÅøðïîåîôéáìÏõô¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÉÎ¢Ý               ½ ûãã®ÅáóåÉî¬ ²¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÉÎÏÕÔ¢Ý            ½ ûãã®ÅáóåÉîÏõô¬ ²¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÏÕÔ¢Ý              ½ ûãã®ÅáóåÏõô¬ ²¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÒÁÔÅÁÃÔÉÏÎ¢Ý       ½ ûãã®ÅáóåÒáôåÁãôéïî¬ ²¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÓÉÎÅÉÎ¢Ý           ½ ûãã®ÅáóåÓéîåÉî¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÓÉÎÅÉÎÏÕÔ¢Ý        ½ ûãã®ÅáóåÓéîåÉîÏõô¬ ±ýŠÁÃÔÉÏÎßÅÁÓÉÎÇÛ¢ÓÉÎÅÏÕÔ¢Ý          ½ ûãã®ÅáóåÓéîåÏõô¬ ±ýŠŠìïãáì áãôéïîÍáîáçåò ½ ãã®ÄéòåãôïòºçåôÉîóôáîãå¨©ºçåôÁãôéïîÍáîáçåò¨©ŠŠæõîãôéïî ôòáîóéôéïî®îå÷Åáóéîç¨áãôéïî¬ åáóéîçÎáíå¬ íïòå©Š    ìïãáì ëåù ½ óôòéîç®õððåò¨ôïóôòéîç¨åáóéîçÎáíå©©Š    ìïãáì åáóéîçŠ    éæ ÁÃÔÉÏÎßÅÁÓÉÎÇÛëåùÝ ôèåîŠ        ìïãáì ãìó¬ ãïõîô¬ äåæáõìô ½ õîðáãë¨ÁÃÔÉÏÎßÅÁÓÉÎÇÛëåùÝ©Š        éæ ãïõîô ½½ ² ôèåîŠ            åáóéîç ½ ãìóºãòåáôå¨áãôéïî¬ íïòå ïò äåæáõìô©Š        åìóåŠ            åáóéîç ½ ãìóºãòåáôå¨áãôéïî©Š        åîäŠ    åîäŠ    òåôõòî åáóéîç ïò áãôéïîŠåîäŠŠæõîãôéïî ôòáîóéôéïî®ãòåáôå¨áãôéïî¬ áòçó©Š    áòçó ½ ãèåãëôáâìå¨áòçó©Š    éæ áòçó®åáóéîç ôèåîŠ        éæ ôùðå¨áòçó®åáóéîç© ½½ ¢ôáâìå¢ ôèåîŠ            áãôéïî ½ ôòáîóéôéïî®îå÷Åáóéîç¨áãôéïî¬ õîðáãë¨áòçó®åáóéîç©©Š        åìóåŠ            áãôéïî ½ ôòáîóéôéïî®îå÷Åáóéîç¨áãôéïî¬ áòçó®åáóéîç©Š        åîäŠ    åîäŠŠ    ìïãáì áãôéïîó ½ ûýŠ    ìïãáì äåìáù ½ ãèåãëîõíâåò¨áòçó®äåìáù©Š    éæ äåìáù ¾ ° ôèåîŠ        áãôéïîóÛ£áãôéïîó « ±Ý ½ ãã®ÄåìáùÔéíåºãòåáôå¨äåìáù©Š    åîäŠ    áãôéïîóÛ£áãôéïîó « ±Ý ½ áãôéïîŠŠ    ìïãáì ïîÃïíðìåôå ½ áòçó®ïîÃïíðìåôåŠ    éæ ôùðå¨ïîÃïíðìåôå© þ½ ¢æõîãôéïî¢ ôèåî ïîÃïíðìåôå ½ îéì åîäŠ    éæ ïîÃïíðìåôå ôèåîŠ        áãôéïîóÛ£áãôéïîó « ±Ý ½ ãã®ÃáììÆõîãºãòåáôå¨ïîÃïíðìåôå©Š    åîäŠŠ    éæ áòçó®òåíïöåÓåìæ ôèåîŠ        áãôéïîóÛ£áãôéïîó « ±Ý ½ ãã®ÒåíïöåÓåìæºãòåáôå¨©Š    åîäŠŠ    éæ £áãôéïîó ¾ ± ôèåîŠ        òåôõòî ôòáîóéôéïî®óåñõåîãå¨áãôéïîó©Š    åìóåŠ        òåôõòî áãôéïîóÛ±ÝŠ    åîäŠåîäŠŠæõîãôéïî ôòáîóéôéïî®åøåãõôå¨ôáòçåô¬ áãôéïî¬ áòçó©Š    áóóåòô¨îïô ôïìõá®éóîõìì¨ôáòçåô©¬ ¢ôòáîóéôéïî®åøåãõôå¨© ­ ôáòçåô éó îïô ãã®Îïäå¢©Š    ìïãáì áãôéïî ½ ôòáîóéôéïî®ãòåáôå¨áãôéïî¬ áòçó©Š    ôáòçåôºòõîÁãôéïî¨áãôéïî©Š    òåôõòî áãôéïîŠåîäŠŠæõîãôéïî ôòáîóéôéïî®íïöåÔï¨ôáòçåô¬ áòçó©Š    áóóåòô¨îïô ôïìõá®éóîõìì¨ôáòçåô©¬ ¢ôòáîóéôéïî®íïöåÔï¨© ­ ôáòçåô éó îïô ãã®Îïäå¢©Š    ìïãáì ø ½ áòçó®ø ïò ôáòçåôºçåôÐïóéôéïîØ¨©Š    ìïãáì ù ½ áòçó®ù ïò ôáòçåôºçåôÐïóéôéïîÙ¨©Š    ìïãáì áãôéïî ½ ãã®ÍïöåÔïºãòåáôå¨áòçó®ôéíå¬ ãã®ð¨ø¬ ù©©Š    òåôõòî ôòáîóéôéïî®åøåãõôå¨ôáòçåô¬ áãôéïî¬ áòçó©ŠåîäŠŠæõîãôéïî ôòáîóéôéïî®íïöåÂù¨ôáòçåô¬ áòçó©Š    áóóåòô¨îïô ôïìõá®éóîõìì¨ôáòçåô©¬ ¢ôòáîóéôéïî®íïöåÂù¨© ­ ôáòçåô éó îïô ãã®Îïäå¢©Š    ìïãáì ø ½ áòçó®ø ïò °Š    ìïãáì ù ½ áòçó®ù ïò °Š    ìïãáì áãôéïî ½ ãã®ÍïöåÂùºãòåáôå¨áòçó®ôéíå¬ ãã®ð¨ø¬ ù©©Š    òåôõòî ôòáîóéôéïî®åøåãõôå¨ôáòçåô¬ áãôéïî¬ áòçó©ŠåîäŠŠæõîãôéïî ôòáîóéôéïî®æáäåÉî¨ôáòçåô¬ áòçó©Š    áóóåòô¨îïô ôïìõá®éóîõìì¨ôáòçåô©¬ ¢ôòáîóéôéïî®æáäåÉî¨© ­ ôáòçåô éó îïô ãã®Îïäå¢©Š    ìïãáì áãôéïî ½ ãã®ÆáäåÉîºãòåáôå¨áòçó®ôéíå©Š    òåôõòî ôòáîóéôéïî®åøåãõôå¨ôáòçåô¬ áãôéïî¬ áòçó©ŠåîäŠŠæõîãôéïî ôòáîóéôéïî®æáäåÏõô¨ôáòçåô¬ áòçó©Š    áóóåòô¨îïô ôïìõá®éóîõìì¨ôáòçåô©¬ ¢ôòáîóéôéïî®æáäåÏõô¨© ­ ôáòçåô éó îïô ãã®Îïäå¢©Š    ìïãáì áãôéïî ½ ãã®ÆáäåÏõôºãòåáôå¨áòçó®ôéíå©Š    òåôõòî ôòáîóéôéïî®åøåãõôå¨ôáòçåô¬ áãôéïî¬ áòçó©ŠåîäŠŠæõîãôéïî ôòáîóéôéïî®æáäåÔï¨ôáòçåô¬ áòçó©Š    áóóåòô¨îïô ôïìõá®éóîõìì¨ôáòçåô©¬ ¢ôòáîóéôéïî®æáäåÔï¨© ­ ôáòçåô éó îïô ãã®Îïäå¢©Š    ìïãáì ïðáãéôù ½ ãèåãëéîô¨áòçó®ïðáãéôù©Š    éæ ïðáãéôù ¼ ° ôèåîŠ        ïðáãéôù ½ °Š    åìóåéæ ïðáãéôù ¾ ²µµ ôèåîŠ        ïðáãéôù ½ ²µµŠ    åîäŠ    ìïãáì áãôéïî ½ ãã®ÆáäåÔïºãòåáôå¨áòçó®ôéíå¬ ïðáãéôù©Š    òåôõòî ôòáîóéôéïî®åøåãõôå¨ôáòçåô¬ áãôéïî¬ áòçó©ŠåîäŠŠæõîãôéïî ôòáîóéôéïî®óãáìåÔï¨ôáòçåô¬ áòçó©Š    áóóåòô¨îïô ôïìõá®éóîõìì¨ôáòçåô©¬ ¢ôòáîóéôéïî®óãáìåÔï¨© ­ ôáòçåô éó îïô ãã®Îïäå¢©Š    ìïãáì áãôéïîŠ    éæ áòçó®óãáìå ôèåîŠ        áãôéïî ½ ãã®ÓãáìåÔïºãòåáôå¨ãèåãëîõíâåò¨áòçó®ôéíå©¬ ãèåãëîõíâåò¨áòçó®óãáìå©©Š    åìóåéæ áòçó®óãáìåØ ïò áòçó®óãáìåÙ ôèåîŠ        ìïãáì óãáìåØ¬ óãáìåÙŠ        éæ áòçó®óãáìåØ ôèåîŠ            óãáìåØ ½ ãèåãëîõíâåò¨áòçó®óãáìåØ©Š        åìóåŠ            óãáìåØ ½ ôáòçåôºçåôÓãáìåØ¨©Š        åîäŠ        éæ áòçó®óãáìåÙ ôèåîŠ            óãáìåÙ ½ ãèåãëîõíâåò¨áòçó®óãáìåÙ©Š        åìóåŠ            óãáìåÙ ½ ôáòçåôºçåôÓãáìåÙ¨©Š        åîäŠ        áãôéïî ½ ãã®ÓãáìåÔïºãòåáôå¨ãèåãëîõíâåò¨áòçó®ôéíå©¬ óãáìåØ¬ óãáìåÙ©Š    åîäŠ    òåôõòî ôòáîóéôéïî®åøåãõôå¨ôáòçåô¬ áãôéïî¬ áòçó©ŠåîäŠŠæõîãôéïî ôòáîóéôéïî®òïôáôåÔï¨ôáòçåô¬ áòçó©Š    áóóåòô¨îïô ôïìõá®éóîõìì¨ôáòçåô©¬ ¢ôòáîóéôéïî®òïôáôåÔï¨© ­ ôáòçåô éó îïô ãã®Îïäå¢©Š    ìïãáì òïôáôéïî ½ áòçó®òïôáôéïî ïò ôáòçåôºçåôÒïôáôéïî¨©Š    ìïãáì áãôéïî ½ ãã®ÒïôáôåÔïºãòåáôå¨áòçó®ôéíå¬ òïôáôéïî©Š    òåôõòî ôòáîóéôéïî®åøåãõôå¨ôáòçåô¬ áãôéïî¬ áòçó©ŠåîäŠŠæõîãôéïî ôòáîóéôéïî®òïôáôåÂù¨ôáòçåô¬ áòçó©Š    áóóåòô¨îïô ôïìõá®éóîõìì¨ôáòçåô©¬ ¢ôòáîóéôéïî®òïôáôåÔï¨© ­ ôáòçåô éó îïô ãã®Îïäå¢©Š    ìïãáì òïôáôéïî ½ áòçó®òïôáôéïî ïò °Š    ìïãáì áãôéïî ½ ãã®ÒïôáôåÂùºãòåáôå¨áòçó®ôéíå¬ òïôáôéïî©Š    òåôõòî ôòáîóéôéïî®åøåãõôå¨ôáòçåô¬ áãôéïî¬ áòçó©ŠåîäŠŠæõîãôéïî ôòáîóéôéïî®óåñõåîãå¨áãôéïîó©Š    éæ £áãôéïîó ¼ ± ôèåî òåôõòî åîäŠ    éæ £áãôéïîó ¼ ² ôèåî òåôõòî áãôéïîóÛ±Ý åîäŠ    òåôõòî ãã®Óåñõåîãåºãòåáôå¨áãôéïîó©ŠåîäŠŠæõîãôéïî ôòáîóéôéïî®òåíïöåÁãôéïî¨áãôéïî©Š    éæ îïô ôïìõá®éóîõìì¨áãôéïî© ôèåîŠ        áãôéïîÍáîáçåòºòåíïöåÁãôéïî¨áãôéïî©Š    åîäŠåîäŠŠæõîãôéïî ôòáîóéôéïî®óôïðÔáòçåô¨ôáòçåô©Š    éæ îïô ôïìõá®éóîõìì¨ôáòçåô© ôèåîŠ        áãôéïîÍáîáçåòºòåíïöåÁììÁãôéïîóÆòïíÔáòçåô¨ôáòçåô©Š    åîäŠåîäŠŠæõîãôéïî ôòáîóéôéïî®ðáõóåÔáòçåô¨ôáòçåô©Š    éæ îïô ôïìõá®éóîõìì¨ôáòçåô© ôèåîŠ        áãôéïîÍáîáçåòºðáõóåÔáòçåô¨ôáòçåô©Š    åîäŠåîäŠŠæõîãôéïî ôòáîóéôéïî®òåóõíåÔáòçåô¨ôáòçåô©Š    éæ îïô ôïìõá®éóîõìì¨ôáòçåô© ôèåîŠ        áãôéïîÍáîáçåòºòåóõíåÔáòçåô¨ôáòçåô©Š    åîäŠåîäŠŠòåôõòî ôòáîóéôéïîŠ
+--[[
+
+Copyright (c) 2011-2014 chukong-inc.com
+
+Permission is hereby granted, free of charge, to any person obtaining a copy
+of this software and associated documentation files (the "Software"), to deal
+in the Software without restriction, including without limitation the rights
+to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
+copies of the Software, and to permit persons to whom the Software is
+furnished to do so, subject to the following conditions:
+
+The above copyright notice and this permission notice shall be included in
+all copies or substantial portions of the Software.
+
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR
+IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY,
+FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE
+AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER
+LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
+OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN
+THE SOFTWARE.
+
+]]
+
+local transition = {}
+
+local ACTION_EASING = {}
+ACTION_EASING["BACKIN"]           = {cc.EaseBackIn, 1}
+ACTION_EASING["BACKINOUT"]        = {cc.EaseBackInOut, 1}
+ACTION_EASING["BACKOUT"]          = {cc.EaseBackOut, 1}
+ACTION_EASING["BOUNCE"]           = {cc.EaseBounce, 1}
+ACTION_EASING["BOUNCEIN"]         = {cc.EaseBounceIn, 1}
+ACTION_EASING["BOUNCEINOUT"]      = {cc.EaseBounceInOut, 1}
+ACTION_EASING["BOUNCEOUT"]        = {cc.EaseBounceOut, 1}
+ACTION_EASING["ELASTIC"]          = {cc.EaseElastic, 2, 0.3}
+ACTION_EASING["ELASTICIN"]        = {cc.EaseElasticIn, 2, 0.3}
+ACTION_EASING["ELASTICINOUT"]     = {cc.EaseElasticInOut, 2, 0.3}
+ACTION_EASING["ELASTICOUT"]       = {cc.EaseElasticOut, 2, 0.3}
+ACTION_EASING["EXPONENTIALIN"]    = {cc.EaseExponentialIn, 1}
+ACTION_EASING["EXPONENTIALINOUT"] = {cc.EaseExponentialInOut, 1}
+ACTION_EASING["EXPONENTIALOUT"]   = {cc.EaseExponentialOut, 1}
+ACTION_EASING["IN"]               = {cc.EaseIn, 2, 1}
+ACTION_EASING["INOUT"]            = {cc.EaseInOut, 2, 1}
+ACTION_EASING["OUT"]              = {cc.EaseOut, 2, 1}
+ACTION_EASING["RATEACTION"]       = {cc.EaseRateAction, 2, 1}
+ACTION_EASING["SINEIN"]           = {cc.EaseSineIn, 1}
+ACTION_EASING["SINEINOUT"]        = {cc.EaseSineInOut, 1}
+ACTION_EASING["SINEOUT"]          = {cc.EaseSineOut, 1}
+
+local actionManager = cc.Director:getInstance():getActionManager()
+
+function transition.newEasing(action, easingName, more)
+    local key = string.upper(tostring(easingName))
+    local easing
+    if ACTION_EASING[key] then
+        local cls, count, default = unpack(ACTION_EASING[key])
+        if count == 2 then
+            easing = cls:create(action, more or default)
+        else
+            easing = cls:create(action)
+        end
+    end
+    return easing or action
+end
+
+function transition.create(action, args)
+    args = checktable(args)
+    if args.easing then
+        if type(args.easing) == "table" then
+            action = transition.newEasing(action, unpack(args.easing))
+        else
+            action = transition.newEasing(action, args.easing)
+        end
+    end
+
+    local actions = {}
+    local delay = checknumber(args.delay)
+    if delay > 0 then
+        actions[#actions + 1] = cc.DelayTime:create(delay)
+    end
+    actions[#actions + 1] = action
+
+    local onComplete = args.onComplete
+    if type(onComplete) ~= "function" then onComplete = nil end
+    if onComplete then
+        actions[#actions + 1] = cc.CallFunc:create(onComplete)
+    end
+
+    if args.removeSelf then
+        actions[#actions + 1] = cc.RemoveSelf:create()
+    end
+
+    if #actions > 1 then
+        return transition.sequence(actions)
+    else
+        return actions[1]
+    end
+end
+
+function transition.execute(target, action, args)
+    assert(not tolua.isnull(target), "transition.execute() - target is not cc.Node")
+    local action = transition.create(action, args)
+    target:runAction(action)
+    return action
+end
+
+function transition.moveTo(target, args)
+    assert(not tolua.isnull(target), "transition.moveTo() - target is not cc.Node")
+    local x = args.x or target:getPositionX()
+    local y = args.y or target:getPositionY()
+    local action = cc.MoveTo:create(args.time, cc.p(x, y))
+    return transition.execute(target, action, args)
+end
+
+function transition.moveBy(target, args)
+    assert(not tolua.isnull(target), "transition.moveBy() - target is not cc.Node")
+    local x = args.x or 0
+    local y = args.y or 0
+    local action = cc.MoveBy:create(args.time, cc.p(x, y))
+    return transition.execute(target, action, args)
+end
+
+function transition.fadeIn(target, args)
+    assert(not tolua.isnull(target), "transition.fadeIn() - target is not cc.Node")
+    local action = cc.FadeIn:create(args.time)
+    return transition.execute(target, action, args)
+end
+
+function transition.fadeOut(target, args)
+    assert(not tolua.isnull(target), "transition.fadeOut() - target is not cc.Node")
+    local action = cc.FadeOut:create(args.time)
+    return transition.execute(target, action, args)
+end
+
+function transition.fadeTo(target, args)
+    assert(not tolua.isnull(target), "transition.fadeTo() - target is not cc.Node")
+    local opacity = checkint(args.opacity)
+    if opacity < 0 then
+        opacity = 0
+    elseif opacity > 255 then
+        opacity = 255
+    end
+    local action = cc.FadeTo:create(args.time, opacity)
+    return transition.execute(target, action, args)
+end
+
+function transition.scaleTo(target, args)
+    assert(not tolua.isnull(target), "transition.scaleTo() - target is not cc.Node")
+    local action
+    if args.scale then
+        action = cc.ScaleTo:create(checknumber(args.time), checknumber(args.scale))
+    elseif args.scaleX or args.scaleY then
+        local scaleX, scaleY
+        if args.scaleX then
+            scaleX = checknumber(args.scaleX)
+        else
+            scaleX = target:getScaleX()
+        end
+        if args.scaleY then
+            scaleY = checknumber(args.scaleY)
+        else
+            scaleY = target:getScaleY()
+        end
+        action = cc.ScaleTo:create(checknumber(args.time), scaleX, scaleY)
+    end
+    return transition.execute(target, action, args)
+end
+
+function transition.rotateTo(target, args)
+    assert(not tolua.isnull(target), "transition.rotateTo() - target is not cc.Node")
+    local rotation = args.rotation or target:getRotation()
+    local action = cc.RotateTo:create(args.time, rotation)
+    return transition.execute(target, action, args)
+end
+
+function transition.rotateBy(target, args)
+    assert(not tolua.isnull(target), "transition.rotateTo() - target is not cc.Node")
+    local rotation = args.rotation or 0
+    local action = cc.RotateBy:create(args.time, rotation)
+    return transition.execute(target, action, args)
+end
+
+function transition.sequence(actions)
+    if #actions < 1 then return end
+    if #actions < 2 then return actions[1] end
+    return cc.Sequence:create(actions)
+end
+
+function transition.removeAction(action)
+    if not tolua.isnull(action) then
+        actionManager:removeAction(action)
+    end
+end
+
+function transition.stopTarget(target)
+    if not tolua.isnull(target) then
+        actionManager:removeAllActionsFromTarget(target)
+    end
+end
+
+function transition.pauseTarget(target)
+    if not tolua.isnull(target) then
+        actionManager:pauseTarget(target)
+    end
+end
+
+function transition.resumeTarget(target)
+    if not tolua.isnull(target) then
+        actionManager:resumeTarget(target)
+    end
+end
+
+return transition

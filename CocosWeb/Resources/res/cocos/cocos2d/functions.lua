@@ -1,1 +1,692 @@
-­­ΫΫΓοπωςιηθτ ¨γ© ²°±±­²°±µ γθυλοξη­ιξγ®γονΠεςνισσιοξ ισ θεςεβω ηςαξτεδ¬ ζςεε οζ γθαςηε¬ το αξω πεςσοξ οβταιξιξη α γοπωοζ τθισ σοζτχαςε αξδ ασσογιατεδ δογυνεξτατιοξ ζιμεσ ¨τθε ΆΣοζτχαςεΆ©¬ το δεαμιξ τθε Σοζτχαςε χιτθουτ ςεστςιγτιοξ¬ ιξγμυδιξη χιτθουτ μινιτατιοξ τθε ςιηθτστο υσε¬ γοπω¬ νοδιζω¬ νεςηε¬ πυβμισθ¬ διστςιβυτε¬ συβμιγεξσε¬ αξδ―ος σεμμγοπιεσ οζ τθε Σοζτχαςε¬ αξδ το πεςνιτ πεςσοξσ το χθον τθε Σοζτχαςε ισζυςξισθεδ το δο σο¬ συβκεγτ το τθε ζομμοχιξη γοξδιτιοξσΊΤθε αβοφε γοπωςιηθτ ξοτιγε αξδ τθισ πεςνισσιοξ ξοτιγε σθαμμ βε ιξγμυδεδ ιξαμμ γοπιεσ ος συβσταξτιαμ ποςτιοξσ οζ τθε Σοζτχαςε®ΤΘΕ ΣΟΖΤΧΑÒΕ ΙΣ ΠÒΟΦΙΔΕΔ ΆΑΣ ΙΣΆ¬ ΧΙΤΘΟΥΤ ΧΑÒÒΑΞΤΩ ΟΖ ΑΞΩ ΛΙΞΔ¬ ΕΨΠÒΕΣΣ ΟÒΙΝΠΜΙΕΔ¬ ΙΞΓΜΥΔΙΞΗ ΒΥΤ ΞΟΤ ΜΙΝΙΤΕΔ ΤΟ ΤΘΕ ΧΑÒÒΑΞΤΙΕΣ ΟΖ ΝΕÒΓΘΑΞΤΑΒΙΜΙΤΩ¬ΖΙΤΞΕΣΣ ΖΟÒ Α ΠΑÒΤΙΓΥΜΑÒ ΠΥÒΠΟΣΕ ΑΞΔ ΞΟΞΙΞΖÒΙΞΗΕΝΕΞΤ® ΙΞ ΞΟ ΕΦΕΞΤ ΣΘΑΜΜ ΤΘΕΑΥΤΘΟÒΣ ΟÒ ΓΟΠΩÒΙΗΘΤ ΘΟΜΔΕÒΣ ΒΕ ΜΙΑΒΜΕ ΖΟÒ ΑΞΩ ΓΜΑΙΝ¬ ΔΑΝΑΗΕΣ ΟÒ ΟΤΘΕÒΜΙΑΒΙΜΙΤΩ¬ ΧΘΕΤΘΕÒ ΙΞ ΑΞ ΑΓΤΙΟΞ ΟΖ ΓΟΞΤÒΑΓΤ¬ ΤΟÒΤ ΟÒ ΟΤΘΕÒΧΙΣΕ¬ ΑÒΙΣΙΞΗ ΖÒΟΝ¬ΟΥΤ ΟΖ ΟÒ ΙΞ ΓΟΞΞΕΓΤΙΟΞ ΧΙΤΘ ΤΘΕ ΣΟΖΤΧΑÒΕ ΟÒ ΤΘΕ ΥΣΕ ΟÒ ΟΤΘΕÒ ΔΕΑΜΙΞΗΣ ΙΞΤΘΕ ΣΟΖΤΧΑÒΕ®έέμογαμ τοστςιξη ½ τοστςιξημογαμ τοξυνβες ½ τοξυνβεςμογαμ ασσεςτ ½ ασσεςτμογαμ εςςος ½ εςςοςμογαμ τωπε ½ τωπεμογαμ παιςσ ½ παιςσμογαμ ιπαιςσ ½ ιπαιςσμογαμ πγαμμ ½ πγαμμμογαμ ξηψ ½ ξηψμογαμ ξηψίμοη ½ ξιμιζ ξηψ τθεξ ξηψίμοη ½ ξηψ®μοη εξδμογαμ ταβμείιξσεςτ ½ ταβμε®ιξσεςτμογαμ ταβμείςενοφε ½ ταβμε®ςενοφεμογαμ ταβμείζοςνατ ½ στςιξη®ζοςνατμογαμ στςιξηίυππες ½ στςιξη®υππεςμογαμ στςιξηίμεξ ½ στςιξη®μεξμογαμ στςιξηίςεπ ½ στςιξη®ςεπμογαμ στςιξηίζιξδ ½ στςιξη®ζιξδμογαμ στςιξηίησυβ ½ στςιξη®ησυβμογαμ στςιξηίσυβ ½ στςιξη®συβμογαμ στςιξηίβωτε ½ στςιξη®βωτεμογαμ στςιξηίγθας ½ στςιξη®γθαςμογαμ νατθίζμοος ½ νατθ®ζμοοςμογαμ νατθίγειμ ½ νατθ®γειμμογαμ νατθίςαξδον ½ νατθ®ςαξδονμογαμ νατθίςαξδονσεεδ ½ νατθ®ςαξδονσεεδμογαμ ιοίοπεξ ½ ιο®οπεξμογαμ ιοίγμοσε ½ ιο®γμοσεμογαμ οσίτινε ½ οσ®τινεμογαμ δεβυηίτςαγεβαγλ ½ δεβυη®τςαγεβαγλμογαμ δεβυηίηετμογαμ ½ δεβυη®ηετμογαμ­­ ιξτεςξαμ ζυξγτιοξ¬ αδφισε ωου ξοτ το γαμμ ιτ διςεγτμω®ζυξγτιοξ πςιξτΜοη¨ταη¬ ζντ¬ ®®®©    ιζ ξηψίμοη τθεξ        ξηψίμοη¨ξηψΫταηέ¬ ταβμείζοςνατ¨τοστςιξη¨ζντ©¬ ®®®©©        ιζ ταη ½½ ΆΕÒÒΆ τθεξ            ξηψίμοη¨ξηψ®ΕÒÒ¬ δεβυηίτςαγεβαγλ¨ΆΆ¬ ²©©        εξδ        ςετυςξ    εξδ    μογαμ τ ½ ϋ        ΆΫΆ¬        στςιξηίυππες¨τοστςιξη¨ταη©©¬        Άέ Ά¬        ταβμείζοςνατ¨τοστςιξη¨ζντ©¬ ®®®©    ύ    ιζ ταη ½½ ΆΕÒÒΆ τθεξ        ταβμείιξσεςτ¨τ¬ δεβυηίτςαγεβαγλ¨ΆΆ¬ ²©©    εξδ    πςιξτ¨ταβμε®γοξγατ¨τ©©εξδζυξγτιοξ πςιξτΕςςος¨ζντ¬ ®®®©    πςιξτΜοη¨ΆΕÒÒΆ¬ ζντ¬ ®®®©εξδζυξγτιοξ πςιξτΔεβυη¨ζντ¬ ®®®©    ιζ ΔΕΒΥΗ Ό ³ τθεξ ςετυςξ εξδ    πςιξτΜοη¨ΆΔΕΒΥΗΆ¬ ζντ¬ ®®®©εξδζυξγτιοξ πςιξτΙξζο¨ζντ¬ ®®®©    ιζ ΔΕΒΥΗ Ό ² τθεξ ςετυςξ εξδ    πςιξτΜοη¨ΆΙΞΖΟΆ¬ ζντ¬ ®®®©εξδζυξγτιοξ πςιξτΧαςξ¨ζντ¬ ®®®©    ιζ ΔΕΒΥΗ Ό ± τθεξ ςετυςξ εξδ    πςιξτΜοη¨ΆΧΑÒΞΆ¬ ζντ¬ ®®®©εξδμογαμ ζυξγτιοξ ίδυνπίφαμυε¨φ©    ιζ τωπε¨φ© ½½ ΆστςιξηΆ τθεξ        φ ½ ΆάΆΆ ®® φ ®® ΆάΆΆ    εξδ    ςετυςξ τοστςιξη¨φ©εξδζυξγτιοξ δυνπ¨φαμυε¬ δεσγιπτιοξ¬ ξεστιξη©    ιζ τωπε¨ξεστιξη© ώ½ ΆξυνβεςΆ τθεξ ξεστιξη ½ ³ εξδ    μογαμ μοολυπ ½ ϋύ    μογαμ ςεσυμτ ½ ϋύ    μογαμ τςαγεβαγλ ½ στςιξη®σπμιτ¨δεβυηίτςαγεβαγλ¨ΆΆ¬ ²©¬ ΆάξΆ©    πςιξτ¨Άδυνπ ζςονΊ Ά ®® στςιξη®τςιν¨τςαγεβαγλΫ³έ©©    μογαμ ζυξγτιοξ ίδυνπ¨φαμυε¬ δεσγιπτιοξ¬ ιξδεξτ¬ ξεστ¬ λεωμεξ©        δεσγιπτιοξ ½ δεσγιπτιοξ ος ΆΌφαςΎΆ        μογαμ σπγ ½ ΆΆ        ιζ τωπε¨λεωμεξ© ½½ ΆξυνβεςΆ τθεξ            σπγ ½ στςιξηίςεπ¨Ά Ά¬ λεωμεξ ­ στςιξηίμεξ¨ίδυνπίφαμυε¨δεσγιπτιοξ©©©        εξδ        ιζ τωπε¨φαμυε© ώ½ ΆταβμεΆ τθεξ            ςεσυμτΫ£ςεσυμτ «± έ ½ ταβμείζοςνατ¨Ά¥σ¥σ¥σ ½ ¥σΆ¬ ιξδεξτ¬ ίδυνπίφαμυε¨δεσγιπτιοξ©¬ σπγ¬ ίδυνπίφαμυε¨φαμυε©©        εμσειζ μοολυπΫτοστςιξη¨φαμυε©έ τθεξ            ςεσυμτΫ£ςεσυμτ «± έ ½ ταβμείζοςνατ¨Ά¥σ¥σ¥σ ½ ªÒΕΖªΆ¬ ιξδεξτ¬ ίδυνπίφαμυε¨δεσγιπτιοξ©¬ σπγ©        εμσε            μοολυπΫτοστςιξη¨φαμυε©έ ½ τςυε            ιζ ξεστ Ύ ξεστιξη τθεξ                ςεσυμτΫ£ςεσυμτ «± έ ½ ταβμείζοςνατ¨Ά¥σ¥σ ½ ªΝΑΨ ΞΕΣΤΙΞΗªΆ¬ ιξδεξτ¬ ίδυνπίφαμυε¨δεσγιπτιοξ©©            εμσε                ςεσυμτΫ£ςεσυμτ «± έ ½ ταβμείζοςνατ¨Ά¥σ¥σ ½ ϋΆ¬ ιξδεξτ¬ ίδυνπίφαμυε¨δεσγιπτιοξ©©                μογαμ ιξδεξτ² ½ ιξδεξτ®®Ά    Ά                μογαμ λεωσ ½ ϋύ                μογαμ λεωμεξ ½ °                μογαμ φαμυεσ ½ ϋύ                ζος λ¬ φ ιξ παιςσ¨φαμυε© δο                    λεωσΫ£λεωσ « ±έ ½ λ                    μογαμ φλ ½ ίδυνπίφαμυε¨λ©                    μογαμ φλμ ½ στςιξηίμεξ¨φλ©                    ιζ φλμ Ύ λεωμεξ τθεξ λεωμεξ ½ φλμ εξδ                    φαμυεσΫλέ ½ φ                εξδ                ταβμε®σοςτ¨λεωσ¬ ζυξγτιοξ¨α¬ β©                    ιζ τωπε¨α© ½½ ΆξυνβεςΆ αξδ τωπε¨β© ½½ ΆξυνβεςΆ τθεξ                        ςετυςξ α Ό β                    εμσε                        ςετυςξ τοστςιξη¨α© Ό τοστςιξη¨β©                    εξδ                εξδ©                ζος ι¬ λ ιξ ιπαιςσ¨λεωσ© δο                    ίδυνπ¨φαμυεσΫλέ¬ λ¬ ιξδεξτ²¬ ξεστ « ±¬ λεωμεξ©                εξδ                ςεσυμτΫ£ςεσυμτ «±έ ½ ταβμείζοςνατ¨Ά¥σύΆ¬ ιξδεξτ©            εξδ        εξδ    εξδ    ίδυνπ¨φαμυε¬ δεσγιπτιοξ¬ Ά­ Ά¬ ±©    ζος ι¬ μιξε ιξ ιπαιςσ¨ςεσυμτ© δο        πςιξτ¨μιξε©    εξδεξδζυξγτιοξ πςιξτζ¨ζντ¬ ®®®©    πςιξτ¨ταβμείζοςνατ¨τοστςιξη¨ζντ©¬ ®®®©©εξδζυξγτιοξ γθεγλξυνβες¨φαμυε¬ βασε©    ςετυςξ τοξυνβες¨φαμυε¬ βασε© ος °εξδζυξγτιοξ γθεγλιξτ¨φαμυε©    ςετυςξ νατθ®ςουξδ¨γθεγλξυνβες¨φαμυε©©εξδζυξγτιοξ γθεγλβοομ¨φαμυε©    ςετυςξ ¨φαμυε ώ½ ξιμ αξδ φαμυε ώ½ ζαμσε©εξδζυξγτιοξ γθεγλταβμε¨φαμυε©    ιζ τωπε¨φαμυε© ώ½ ΆταβμεΆ τθεξ φαμυε ½ ϋύ εξδ    ςετυςξ φαμυεεξδζυξγτιοξ ισσετ¨θασθταβμε¬ λεω©    μογαμ τ ½ τωπε¨θασθταβμε©    ςετυςξ ¨τ ½½ ΆταβμεΆ ος τ ½½ ΆυσεςδαταΆ© αξδ θασθταβμεΫλεωέ ώ½ ξιμεξδμογαμ ίσετνεταταβμειξδεψίσετνεταταβμειξδεψ ½ ζυξγτιοξ¨τ¬ ιξδεψ©    ιζ τωπε¨τ© ½½ ΆυσεςδαταΆ τθεξ        μογαμ πεες ½ τομυα®ηετπεες¨τ©        ιζ ξοτ πεες τθεξ            πεες ½ ϋύ            τομυα®σετπεες¨τ¬ πεες©        εξδ        ίσετνεταταβμειξδεψ¨πεες¬ ιξδεψ©    εμσε        μογαμ ντ ½ ηετνεταταβμε¨τ©        ιζ ξοτ ντ τθεξ ντ ½ ϋύ εξδ        ιζ ξοτ ντ®ίίιξδεψ τθεξ            ντ®ίίιξδεψ ½ ιξδεψ            σετνεταταβμε¨τ¬ ντ©        εμσειζ ντ®ίίιξδεψ ώ½ ιξδεψ τθεξ            ίσετνεταταβμειξδεψ¨ντ¬ ιξδεψ©        εξδ    εξδεξδσετνεταταβμειξδεψ ½ ίσετνεταταβμειξδεψζυξγτιοξ γμοξε¨οβκεγτ©    μογαμ μοολυπ ½ ϋύ    μογαμ ζυξγτιοξ ίγοπω¨οβκεγτ©        ιζ τωπε¨οβκεγτ© ώ½ ΆταβμεΆ τθεξ            ςετυςξ οβκεγτ        εμσειζ μοολυπΫοβκεγτέ τθεξ            ςετυςξ μοολυπΫοβκεγτέ        εξδ        μογαμ ξεχΟβκεγτ ½ ϋύ        μοολυπΫοβκεγτέ ½ ξεχΟβκεγτ        ζος λεω¬ φαμυε ιξ παιςσ¨οβκεγτ© δο            ξεχΟβκεγτΫίγοπω¨λεω©έ ½ ίγοπω¨φαμυε©        εξδ        ςετυςξ σετνεταταβμε¨ξεχΟβκεγτ¬ ηετνεταταβμε¨οβκεγτ©©    εξδ    ςετυςξ ίγοπω¨οβκεγτ©εξδζυξγτιοξ γμασσ¨γμασσξανε¬ ®®®©    μογαμ γμσ ½ ϋίίγξανε ½ γμασσξανεύ    μογαμ συπεςσ ½ ϋ®®®ύ    ζος ί¬ συπες ιξ ιπαιςσ¨συπεςσ© δο        μογαμ συπεςΤωπε ½ τωπε¨συπες©        ασσεςτ¨συπεςΤωπε ½½ ΆξιμΆ ος συπεςΤωπε ½½ ΆταβμεΆ ος συπεςΤωπε ½½ ΆζυξγτιοξΆ¬            ταβμείζοςνατ¨Άγμασσ¨© ­ γςεατε γμασσ άΆ¥σάΆ χιτθ ιξφαμιδ συπες γμασσ τωπε άΆ¥σάΆΆ¬                γμασσξανε¬ συπεςΤωπε©©        ιζ συπεςΤωπε ½½ ΆζυξγτιοξΆ τθεξ            ασσεςτ¨γμσ®ίίγςεατε ½½ ξιμ¬                ταβμείζοςνατ¨Άγμασσ¨© ­ γςεατε γμασσ άΆ¥σάΆ χιτθ νοςε τθαξ οξε γςεατιξη ζυξγτιοξΆ¬                    γμασσξανε©©»            ­­ ιζ συπες ισ ζυξγτιοξ¬ σετ ιτ το ίίγςεατε            γμσ®ίίγςεατε ½ συπες        εμσειζ συπεςΤωπε ½½ ΆταβμεΆ τθεξ            ιζ συπεςΫΆ®ισγμασσΆέ τθεξ                ­­ συπες ισ ξατιφε γμασσ                ασσεςτ¨γμσ®ίίγςεατε ½½ ξιμ¬                    ταβμείζοςνατ¨Άγμασσ¨© ­ γςεατε γμασσ άΆ¥σάΆ χιτθ νοςε τθαξ οξε γςεατιξη ζυξγτιοξ ος ξατιφε γμασσΆ¬                        γμασσξανε©©»                γμσ®ίίγςεατε ½ ζυξγτιοξ¨© ςετυςξ συπεςΊγςεατε¨© εξδ            εμσε                ­­ συπες ισ πυςε μυα γμασσ                γμσ®ίίσυπεςσ ½ γμσ®ίίσυπεςσ ος ϋύ                γμσ®ίίσυπεςσΫ£γμσ®ίίσυπεςσ « ±έ ½ συπες                ιζ ξοτ γμσ®συπες τθεξ                    ­­ σετ ζιςστ συπες πυςε μυα γμασσ ασ γμασσ®συπες                    γμσ®συπες ½ συπες                εξδ            εξδ        εμσε            εςςος¨ταβμείζοςνατ¨Άγμασσ¨© ­ γςεατε γμασσ άΆ¥σάΆ χιτθ ιξφαμιδ συπες τωπεΆ¬                        γμασσξανε©¬ °©        εξδ    εξδ    γμσ®ίίιξδεψ ½ γμσ    ιζ ξοτ γμσ®ίίσυπεςσ ος £γμσ®ίίσυπεςσ ½½ ± τθεξ        σετνεταταβμε¨γμσ¬ ϋίίιξδεψ ½ γμσ®συπεςύ©    εμσε        σετνεταταβμε¨γμσ¬ ϋίίιξδεψ ½ ζυξγτιοξ¨ί¬ λεω©            μογαμ συπεςσ ½ γμσ®ίίσυπεςσ            ζος ι ½ ±¬ £συπεςσ δο                μογαμ συπες ½ συπεςσΫιέ                ιζ συπεςΫλεωέ τθεξ ςετυςξ συπεςΫλεωέ εξδ            εξδ        εξδύ©    εξδ    ιζ ξοτ γμσ®γτος τθεξ        ­­ αδδ δεζαυμτ γοξστςυγτος        γμσ®γτος ½ ζυξγτιοξ¨© εξδ    εξδ    γμσ®ξεχ ½ ζυξγτιοξ¨®®®©        μογαμ ιξσταξγε        ιζ γμσ®ίίγςεατε τθεξ            ιξσταξγε ½ γμσ®ίίγςεατε¨®®®©        εμσε            ιξσταξγε ½ ϋύ        εξδ        ίσετνεταταβμειξδεψ¨ιξσταξγε¬ γμσ©        ιξσταξγε®γμασσ ½ γμσ        ιξσταξγεΊγτος¨®®®©        ςετυςξ ιξσταξγε    εξδ    γμσ®γςεατε ½ ζυξγτιοξ¨ί¬ ®®®©        ςετυςξ γμσ®ξεχ¨®®®©    εξδ    ςετυςξ γμσεξδμογαμ ίισλιξδοζίισλιξδοζ ½ ζυξγτιοξ¨γμσ¬ ξανε©    μογαμ ίίιξδεψ ½ ςαχηετ¨γμσ¬ ΆίίιξδεψΆ©    ιζ τωπε¨ίίιξδεψ© ½½ ΆταβμεΆ αξδ ςαχηετ¨ίίιξδεψ¬ ΆίίγξανεΆ© ½½ ξανε τθεξ ςετυςξ τςυε εξδ    ιζ ςαχηετ¨γμσ¬ ΆίίγξανεΆ© ½½ ξανε τθεξ ςετυςξ τςυε εξδ    μογαμ ίίσυπεςσ ½ ςαχηετ¨γμσ¬ ΆίίσυπεςσΆ©    ιζ ξοτ ίίσυπεςσ τθεξ ςετυςξ ζαμσε εξδ    ζος ί¬ συπες ιξ ιπαιςσ¨ίίσυπεςσ© δο        ιζ ίισλιξδοζ¨συπες¬ ξανε© τθεξ ςετυςξ τςυε εξδ    εξδ    ςετυςξ ζαμσεεξδζυξγτιοξ ισλιξδοζ¨οβκ¬ γμασσξανε©    μογαμ τ ½ τωπε¨οβκ©    ιζ τ ώ½ ΆταβμεΆ αξδ τ ώ½ ΆυσεςδαταΆ τθεξ ςετυςξ ζαμσε εξδ    μογαμ ντ    ιζ τ ½½ ΆυσεςδαταΆ τθεξ        ιζ τομυα®ισλιξδοζ¨οβκ¬ γμασσξανε© τθεξ ςετυςξ τςυε εξδ        ντ ½ τομυα®ηετπεες¨οβκ©    εμσε        ντ ½ ηετνεταταβμε¨οβκ©    εξδ    ιζ ντ τθεξ        ςετυςξ ίισλιξδοζ¨ντ¬ γμασσξανε©    εξδ    ςετυςξ ζαμσεεξδζυξγτιοξ ινποςτ¨νοδυμεΞανε¬ γυςςεξτΝοδυμεΞανε©    μογαμ γυςςεξτΝοδυμεΞανεΠαςτσ    μογαμ νοδυμεΖυμμΞανε ½ νοδυμεΞανε    μογαμ οζζσετ ½ ±    χθιμε τςυε δο        ιζ στςιξηίβωτε¨νοδυμεΞανε¬ οζζσετ© ώ½ ΄¶ τθεξ ­­ ®            νοδυμεΖυμμΞανε ½ στςιξηίσυβ¨νοδυμεΞανε¬ οζζσετ©            ιζ γυςςεξτΝοδυμεΞανεΠαςτσ αξδ £γυςςεξτΝοδυμεΞανεΠαςτσ Ύ ° τθεξ                νοδυμεΖυμμΞανε ½ ταβμε®γοξγατ¨γυςςεξτΝοδυμεΞανεΠαςτσ¬ Ά®Ά© ®® Ά®Ά ®® νοδυμεΖυμμΞανε            εξδ            βςεαλ        εξδ        οζζσετ ½ οζζσετ « ±        ιζ ξοτ γυςςεξτΝοδυμεΞανεΠαςτσ τθεξ            ιζ ξοτ γυςςεξτΝοδυμεΞανε τθεξ                μογαμ ξ¬φ ½ δεβυηίηετμογαμ¨³¬ ±©                γυςςεξτΝοδυμεΞανε ½ φ            εξδ            γυςςεξτΝοδυμεΞανεΠαςτσ ½ στςιξη®σπμιτ¨γυςςεξτΝοδυμεΞανε¬ Ά®Ά©        εξδ        ταβμείςενοφε¨γυςςεξτΝοδυμεΞανεΠαςτσ¬ £γυςςεξτΝοδυμεΞανεΠαςτσ©    εξδ    ςετυςξ ςερυιςε¨νοδυμεΖυμμΞανε©εξδζυξγτιοξ θαξδμες¨οβκ¬ νετθοδ©    ςετυςξ ζυξγτιοξ¨®®®©        ςετυςξ νετθοδ¨οβκ¬ ®®®©    εξδεξδζυξγτιοξ νατθ®ξεχςαξδονσεεδ¨©    νατθίςαξδονσεεδ¨οσίτινε¨©©    νατθίςαξδον¨©    νατθίςαξδον¨©    νατθίςαξδον¨©    νατθίςαξδον¨©εξδζυξγτιοξ νατθ®ςουξδ¨φαμυε©    φαμυε ½ γθεγλξυνβες¨φαμυε©    ςετυςξ νατθίζμοος¨φαμυε « °®µ©εξδζυξγτιοξ νατθ®τςυξγ¨ψ©    ιζ ψ Ό½ ° τθεξ        ςετυςξ νατθίγειμ¨ψ©»    εξδ    ιζ νατθίγειμ¨ψ© ½½ ψ τθεξ        ψ ½ νατθίγειμ¨ψ©»    εμσε        ψ ½ νατθίγειμ¨ψ© ­ ±»    εξδ    ςετυςξ ψ»εξδμογαμ ίπι ½ νατθ®πιμογαμ ίπιΔιφ±Έ° ½ ίπι ― ±Έ°ζυξγτιοξ νατθ®αξημε²ςαδιαξ¨αξημε©    ςετυςξ αξημε ª ίπιΔιφ±Έ°εξδμογαμ ίπιΝυμ±Έ° ½ ίπι ª ±Έ°ζυξγτιοξ νατθ®ςαδιαξ²αξημε¨ςαδιαξ©    ςετυςξ ςαδιαξ ― ίπιΝυμ±Έ°εξδζυξγτιοξ ιο®εψιστσ¨πατθ©    μογαμ ζιμε ½ ιοίοπεξ¨πατθ¬ ΆςΆ©    ιζ ζιμε τθεξ        ιοίγμοσε¨ζιμε©        ςετυςξ τςυε    εξδ    ςετυςξ ζαμσεεξδζυξγτιοξ ιο®ςεαδζιμε¨πατθ©    μογαμ ζιμε ½ ιοίοπεξ¨πατθ¬ ΆςΆ©    ιζ ζιμε τθεξ        μογαμ γοξτεξτ ½ ζιμεΊςεαδ¨ΆªαΆ©        ιοίγμοσε¨ζιμε©        ςετυςξ γοξτεξτ    εξδ    ςετυςξ ξιμεξδζυξγτιοξ ιο®χςιτεζιμε¨πατθ¬ γοξτεξτ¬ νοδε©    νοδε ½ νοδε ος Άχ«βΆ    μογαμ ζιμε ½ ιοίοπεξ¨πατθ¬ νοδε©    ιζ ζιμε τθεξ        ιζ ζιμεΊχςιτε¨γοξτεξτ© ½½ ξιμ τθεξ ςετυςξ ζαμσε εξδ        ιοίγμοσε¨ζιμε©        ςετυςξ τςυε    εμσε        ςετυςξ ζαμσε    εξδεξδζυξγτιοξ ιο®πατθιξζο¨πατθ©    μογαμ ποσ ½ στςιξηίμεξ¨πατθ©    μογαμ εψτποσ ½ ποσ « ±    χθιμε ποσ Ύ ° δο        μογαμ β ½ στςιξηίβωτε¨πατθ¬ ποσ©        ιζ β ½½ ΄¶ τθεξ ­­ ΄¶ ½ γθας Ά®Ά            εψτποσ ½ ποσ        εμσειζ β ½½ ΄· τθεξ ­­ ΄· ½ γθας Ά―Ά            βςεαλ        εξδ        ποσ ½ ποσ ­ ±    εξδ    μογαμ διςξανε ½ στςιξηίσυβ¨πατθ¬ ±¬ ποσ©    μογαμ ζιμεξανε ½ στςιξηίσυβ¨πατθ¬ ποσ « ±©    εψτποσ ½ εψτποσ ­ ποσ    μογαμ βασεξανε ½ στςιξηίσυβ¨ζιμεξανε¬ ±¬ εψτποσ ­ ±©    μογαμ εψτξανε ½ στςιξηίσυβ¨ζιμεξανε¬ εψτποσ©    ςετυςξ ϋ        διςξανε ½ διςξανε¬        ζιμεξανε ½ ζιμεξανε¬        βασεξανε ½ βασεξανε¬        εψτξανε ½ εψτξανε    ύεξδζυξγτιοξ ιο®ζιμεσιϊε¨πατθ©    μογαμ σιϊε ½ ζαμσε    μογαμ ζιμε ½ ιοίοπεξ¨πατθ¬ ΆςΆ©    ιζ ζιμε τθεξ        μογαμ γυςςεξτ ½ ζιμεΊσεελ¨©        σιϊε ½ ζιμεΊσεελ¨ΆεξδΆ©        ζιμεΊσεελ¨ΆσετΆ¬ γυςςεξτ©        ιοίγμοσε¨ζιμε©    εξδ    ςετυςξ σιϊεεξδζυξγτιοξ ταβμε®ξυνσ¨τ©    μογαμ γουξτ ½ °    ζος λ¬ φ ιξ παιςσ¨τ© δο        γουξτ ½ γουξτ « ±    εξδ    ςετυςξ γουξτεξδζυξγτιοξ ταβμε®λεωσ¨θασθταβμε©    μογαμ λεωσ ½ ϋύ    ζος λ¬ φ ιξ παιςσ¨θασθταβμε© δο        λεωσΫ£λεωσ « ±έ ½ λ    εξδ    ςετυςξ λεωσεξδζυξγτιοξ ταβμε®φαμυεσ¨θασθταβμε©    μογαμ φαμυεσ ½ ϋύ    ζος λ¬ φ ιξ παιςσ¨θασθταβμε© δο        φαμυεσΫ£φαμυεσ « ±έ ½ φ    εξδ    ςετυςξ φαμυεσεξδζυξγτιοξ ταβμε®νεςηε¨δεστ¬ σςγ©    ζος λ¬ φ ιξ παιςσ¨σςγ© δο        δεστΫλέ ½ φ    εξδεξδζυξγτιοξ ταβμε®ιξσεςττο¨δεστ¬ σςγ¬ βεηιξ©    βεηιξ ½ γθεγλιξτ¨βεηιξ©    ιζ βεηιξ Ό½ ° τθεξ        βεηιξ ½ £δεστ « ±    εξδ    μογαμ μεξ ½ £σςγ    ζος ι ½ °¬ μεξ ­ ± δο        δεστΫι « βεηιξέ ½ σςγΫι « ±έ    εξδεξδζυξγτιοξ ταβμε®ιξδεψοζ¨αςςαω¬ φαμυε¬ βεηιξ©    ζος ι ½ βεηιξ ος ±¬ £αςςαω δο        ιζ αςςαωΫιέ ½½ φαμυε τθεξ ςετυςξ ι εξδ    εξδ    ςετυςξ ζαμσεεξδζυξγτιοξ ταβμε®λεωοζ¨θασθταβμε¬ φαμυε©    ζος λ¬ φ ιξ παιςσ¨θασθταβμε© δο        ιζ φ ½½ φαμυε τθεξ ςετυςξ λ εξδ    εξδ    ςετυςξ ξιμεξδζυξγτιοξ ταβμε®ςενοφεβωφαμυε¨αςςαω¬ φαμυε¬ ςενοφεαμμ©    μογαμ γ¬ ι¬ ναψ ½ °¬ ±¬ £αςςαω    χθιμε ι Ό½ ναψ δο        ιζ αςςαωΫιέ ½½ φαμυε τθεξ            ταβμείςενοφε¨αςςαω¬ ι©            γ ½ γ « ±            ι ½ ι ­ ±            ναψ ½ ναψ ­ ±            ιζ ξοτ ςενοφεαμμ τθεξ βςεαλ εξδ        εξδ        ι ½ ι « ±    εξδ    ςετυςξ γεξδζυξγτιοξ ταβμε®ναπ¨τ¬ ζξ©    μογαμ ξ ½ ϋύ    ζος λ¬ φ ιξ παιςσ¨τ© δο        ξΫλέ ½ ζξ¨φ¬ λ©    εξδ    ςετυςξ ξεξδζυξγτιοξ ταβμε®χαμλ¨τ¬ ζξ©    ζος λ¬φ ιξ παιςσ¨τ© δο        ζξ¨φ¬ λ©    εξδεξδζυξγτιοξ ταβμε®ζιμτες¨τ¬ ζξ©    μογαμ ξ ½ ϋύ    ζος λ¬ φ ιξ παιςσ¨τ© δο        ιζ ζξ¨φ¬ λ© τθεξ            ξΫλέ ½ φ        εξδ    εξδ    ςετυςξ ξεξδζυξγτιοξ ταβμε®υξιρυε¨τ¬ βΑςςαω©    μογαμ γθεγλ ½ ϋύ    μογαμ ξ ½ ϋύ    μογαμ ιδψ ½ ±    ζος λ¬ φ ιξ παιςσ¨τ© δο        ιζ ξοτ γθεγλΫφέ τθεξ            ιζ βΑςςαω τθεξ                ξΫιδψέ ½ φ                ιδψ ½ ιδψ « ±            εμσε                ξΫλέ ½ φ            εξδ            γθεγλΫφέ ½ τςυε        εξδ    εξδ    ςετυςξ ξεξδμογαμ ίθτνμΣπεγιαμΓθαςσΤαβμε ½ ϋύίθτνμΣπεγιαμΓθαςσΤαβμεΫΆ¦Άέ ½ Ά¦ανπ»ΆίθτνμΣπεγιαμΓθαςσΤαβμεΫΆάΆΆέ ½ Ά¦ρυοτ»ΆίθτνμΣπεγιαμΓθαςσΤαβμεΫΆ§Άέ ½ Ά¦£°³Ή»ΆίθτνμΣπεγιαμΓθαςσΤαβμεΫΆΌΆέ ½ Ά¦μτ»ΆίθτνμΣπεγιαμΓθαςσΤαβμεΫΆΎΆέ ½ Ά¦ητ»Άζυξγτιοξ στςιξη®θτνμσπεγιαμγθαςσ¨ιξπυτ©    ζος λ¬ φ ιξ παιςσ¨ίθτνμΣπεγιαμΓθαςσΤαβμε© δο        ιξπυτ ½ στςιξηίησυβ¨ιξπυτ¬ λ¬ φ©    εξδ    ςετυςξ ιξπυτεξδζυξγτιοξ στςιξη®ςεστοςεθτνμσπεγιαμγθαςσ¨ιξπυτ©    ζος λ¬ φ ιξ παιςσ¨ίθτνμΣπεγιαμΓθαςσΤαβμε© δο        ιξπυτ ½ στςιξηίησυβ¨ιξπυτ¬ φ¬ λ©    εξδ    ςετυςξ ιξπυτεξδζυξγτιοξ στςιξη®ξμ²βς¨ιξπυτ©    ςετυςξ στςιξηίησυβ¨ιξπυτ¬ ΆάξΆ¬ ΆΌβς ―ΎΆ©εξδζυξγτιοξ στςιξη®τεψτ²θτνμ¨ιξπυτ©    ιξπυτ ½ στςιξηίησυβ¨ιξπυτ¬ ΆάτΆ¬ Ά    Ά©    ιξπυτ ½ στςιξη®θτνμσπεγιαμγθαςσ¨ιξπυτ©    ιξπυτ ½ στςιξηίησυβ¨ιξπυτ¬ Ά Ά¬ Ά¦ξβσπ»Ά©    ιξπυτ ½ στςιξη®ξμ²βς¨ιξπυτ©    ςετυςξ ιξπυτεξδζυξγτιοξ στςιξη®σπμιτ¨ιξπυτ¬ δεμινιτες©    ιξπυτ ½ τοστςιξη¨ιξπυτ©    δεμινιτες ½ τοστςιξη¨δεμινιτες©    ιζ ¨δεμινιτες½½§§© τθεξ ςετυςξ ζαμσε εξδ    μογαμ ποσ¬αςς ½ °¬ ϋύ    ζος στ¬σπ ιξ ζυξγτιοξ¨© ςετυςξ στςιξηίζιξδ¨ιξπυτ¬ δεμινιτες¬ ποσ¬ τςυε© εξδ δο        ταβμείιξσεςτ¨αςς¬ στςιξηίσυβ¨ιξπυτ¬ ποσ¬ στ ­ ±©©        ποσ ½ σπ « ±    εξδ    ταβμείιξσεςτ¨αςς¬ στςιξηίσυβ¨ιξπυτ¬ ποσ©©    ςετυςξ αςςεξδζυξγτιοξ στςιξη®μτςιν¨ιξπυτ©    ςετυςξ στςιξηίησυβ¨ιξπυτ¬ ΆήΫ άτάξάςέ«Ά¬ ΆΆ©εξδζυξγτιοξ στςιξη®ςτςιν¨ιξπυτ©    ςετυςξ στςιξηίησυβ¨ιξπυτ¬ ΆΫ άτάξάςέ«¤Ά¬ ΆΆ©εξδζυξγτιοξ στςιξη®τςιν¨ιξπυτ©    ιξπυτ ½ στςιξηίησυβ¨ιξπυτ¬ ΆήΫ άτάξάςέ«Ά¬ ΆΆ©    ςετυςξ στςιξηίησυβ¨ιξπυτ¬ ΆΫ άτάξάςέ«¤Ά¬ ΆΆ©εξδζυξγτιοξ στςιξη®υγζιςστ¨ιξπυτ©    ςετυςξ στςιξηίυππες¨στςιξηίσυβ¨ιξπυτ¬ ±¬ ±©© ®® στςιξηίσυβ¨ιξπυτ¬ ²©εξδμογαμ ζυξγτιοξ υςμεξγοδεγθας¨γθας©    ςετυςξ Ά¥Ά ®® ταβμείζοςνατ¨Ά¥°²ΨΆ¬ στςιξηίβωτε¨γθας©©εξδζυξγτιοξ στςιξη®υςμεξγοδε¨ιξπυτ©    ιξπυτ ½ στςιξηίησυβ¨τοστςιξη¨ιξπυτ©¬ ΆάξΆ¬ ΆάςάξΆ©    ιξπυτ ½ στςιξηίησυβ¨ιξπυτ¬ Ά¨Ϋή¥χ¥®¥­ έ©Ά¬ υςμεξγοδεγθας©    ςετυςξ στςιξηίησυβ¨ιξπυτ¬ Ά Ά¬ Ά«Ά©εξδμογαμ ίγθεγλξυνβες ½ γθεγλξυνβεςζυξγτιοξ στςιξη®υςμδεγοδε¨ιξπυτ©    ιξπυτ ½ στςιξηίησυβ ¨ιξπυτ¬ Ά«Ά¬ Ά Ά©    ιξπυτ ½ στςιξηίησυβ ¨ιξπυτ¬ Ά¥¥¨¥ψ¥ψ©Ά¬ ζυξγτιοξ¨θ© ςετυςξ στςιξηίγθας¨ίγθεγλξυνβες¨θ¬ ±¶©© εξδ©    ιξπυτ ½ στςιξηίησυβ ¨ιξπυτ¬ ΆάςάξΆ¬ ΆάξΆ©    ςετυςξ ιξπυτεξδζυξγτιοξ στςιξη®υτζΈμεξ¨ιξπυτ©    μογαμ μεξ  ½ στςιξηίμεξ¨ιξπυτ©    μογαμ μεζτ ½ μεξ    μογαμ γξτ  ½ °    μογαμ αςς  ½ ϋ°¬ °ψγ°¬ °ψε°¬ °ψζ°¬ °ψζΈ¬ °ψζγύ    χθιμε μεζτ ώ½ ° δο        μογαμ τνπ ½ στςιξηίβωτε¨ιξπυτ¬ ­μεζτ©        μογαμ ι   ½ £αςς        χθιμε αςςΫιέ δο            ιζ τνπ Ύ½ αςςΫιέ τθεξ                μεζτ ½ μεζτ ­ ι                βςεαλ            εξδ            ι ½ ι ­ ±        εξδ        γξτ ½ γξτ « ±    εξδ    ςετυςξ γξτεξδζυξγτιοξ στςιξη®ζοςνατξυνβεςτθουσαξδσ¨ξυν©    μογαμ ζοςναττεδ ½ τοστςιξη¨γθεγλξυνβες¨ξυν©©    μογαμ λ    χθιμε τςυε δο        ζοςναττεδ¬ λ ½ στςιξηίησυβ¨ζοςναττεδ¬ Άή¨­Ώ¥δ«©¨¥δ¥δ¥δ©Ά¬ §¥±¬¥²§©        ιζ λ ½½ ° τθεξ βςεαλ εξδ    εξδ    ςετυςξ ζοςναττεδεξδ
+--[[
+
+Copyright (c) 2011-2015 chukong-inc.com
+
+Permission is hereby granted, free of charge, to any person obtaining a copy
+of this software and associated documentation files (the "Software"), to deal
+in the Software without restriction, including without limitation the rights
+to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
+copies of the Software, and to permit persons to whom the Software is
+furnished to do so, subject to the following conditions:
+
+The above copyright notice and this permission notice shall be included in
+all copies or substantial portions of the Software.
+
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR
+IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY,
+FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE
+AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER
+LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
+OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN
+THE SOFTWARE.
+
+]]
+
+local tostring = tostring
+local tonumber = tonumber
+local assert = assert
+local error = error
+local type = type
+local pairs = pairs
+local ipairs = ipairs
+local pcall = pcall
+local ngx = ngx
+local ngx_log = nil
+if ngx then ngx_log = ngx.log end
+local table_insert = table.insert
+local table_remove = table.remove
+local table_format = string.format
+local string_upper = string.upper
+local string_len = string.len
+local string_rep = string.rep
+local string_find = string.find
+local string_gsub = string.gsub
+local string_sub = string.sub
+local string_byte = string.byte
+local string_char = string.char
+local math_floor = math.floor
+local math_ceil = math.ceil
+local math_random = math.random
+local math_randomseed = math.randomseed
+local io_open = io.open
+local io_close = io.close
+local os_time = os.time
+local debug_traceback = debug.traceback
+local debug_getlocal = debug.getlocal
+
+-- internal function, advise you not to call it directly.
+function printLog(tag, fmt, ...)
+    if ngx_log then
+        ngx_log(ngx[tag], table_format(tostring(fmt), ...))
+        if tag == "ERR" then
+            ngx_log(ngx.ERR, debug_traceback("", 2))
+        end
+        return
+    end
+
+    local t = {
+        "[",
+        string_upper(tostring(tag)),
+        "] ",
+        table_format(tostring(fmt), ...)
+    }
+    if tag == "ERR" then
+        table_insert(t, debug_traceback("", 2))
+    end
+    print(table.concat(t))
+end
+
+function printError(fmt, ...)
+    printLog("ERR", fmt, ...)
+end
+
+function printDebug(fmt, ...)
+    if DEBUG < 3 then return end
+    printLog("DEBUG", fmt, ...)
+end
+
+function printInfo(fmt, ...)
+    if DEBUG < 2 then return end
+    printLog("INFO", fmt, ...)
+end
+
+function printWarn(fmt, ...)
+    if DEBUG < 1 then return end
+    printLog("WARN", fmt, ...)
+end
+
+local function _dump_value(v)
+    if type(v) == "string" then
+        v = "\"" .. v .. "\""
+    end
+    return tostring(v)
+end
+
+function dump(value, desciption, nesting)
+    if type(nesting) ~= "number" then nesting = 3 end
+
+    local lookup = {}
+    local result = {}
+    local traceback = string.split(debug_traceback("", 2), "\n")
+    print("dump from: " .. string.trim(traceback[3]))
+
+    local function _dump(value, desciption, indent, nest, keylen)
+        desciption = desciption or "<var>"
+        local spc = ""
+        if type(keylen) == "number" then
+            spc = string_rep(" ", keylen - string_len(_dump_value(desciption)))
+        end
+        if type(value) ~= "table" then
+            result[#result +1 ] = table_format("%s%s%s = %s", indent, _dump_value(desciption), spc, _dump_value(value))
+        elseif lookup[tostring(value)] then
+            result[#result +1 ] = table_format("%s%s%s = *REF*", indent, _dump_value(desciption), spc)
+        else
+            lookup[tostring(value)] = true
+            if nest > nesting then
+                result[#result +1 ] = table_format("%s%s = *MAX NESTING*", indent, _dump_value(desciption))
+            else
+                result[#result +1 ] = table_format("%s%s = {", indent, _dump_value(desciption))
+                local indent2 = indent.."    "
+                local keys = {}
+                local keylen = 0
+                local values = {}
+                for k, v in pairs(value) do
+                    keys[#keys + 1] = k
+                    local vk = _dump_value(k)
+                    local vkl = string_len(vk)
+                    if vkl > keylen then keylen = vkl end
+                    values[k] = v
+                end
+                table.sort(keys, function(a, b)
+                    if type(a) == "number" and type(b) == "number" then
+                        return a < b
+                    else
+                        return tostring(a) < tostring(b)
+                    end
+                end)
+                for i, k in ipairs(keys) do
+                    _dump(values[k], k, indent2, nest + 1, keylen)
+                end
+                result[#result +1] = table_format("%s}", indent)
+            end
+        end
+    end
+    _dump(value, desciption, "- ", 1)
+
+    for i, line in ipairs(result) do
+        print(line)
+    end
+end
+
+function printf(fmt, ...)
+    print(table_format(tostring(fmt), ...))
+end
+
+function checknumber(value, base)
+    return tonumber(value, base) or 0
+end
+
+function checkint(value)
+    return math.round(checknumber(value))
+end
+
+function checkbool(value)
+    return (value ~= nil and value ~= false)
+end
+
+function checktable(value)
+    if type(value) ~= "table" then value = {} end
+    return value
+end
+
+function isset(hashtable, key)
+    local t = type(hashtable)
+    return (t == "table" or t == "userdata") and hashtable[key] ~= nil
+end
+
+local _setmetatableindex
+_setmetatableindex = function(t, index)
+    if type(t) == "userdata" then
+        local peer = tolua.getpeer(t)
+        if not peer then
+            peer = {}
+            tolua.setpeer(t, peer)
+        end
+        _setmetatableindex(peer, index)
+    else
+        local mt = getmetatable(t)
+        if not mt then mt = {} end
+        if not mt.__index then
+            mt.__index = index
+            setmetatable(t, mt)
+        elseif mt.__index ~= index then
+            _setmetatableindex(mt, index)
+        end
+    end
+end
+setmetatableindex = _setmetatableindex
+
+function clone(object)
+    local lookup = {}
+    local function _copy(object)
+        if type(object) ~= "table" then
+            return object
+        elseif lookup[object] then
+            return lookup[object]
+        end
+        local newObject = {}
+        lookup[object] = newObject
+        for key, value in pairs(object) do
+            newObject[_copy(key)] = _copy(value)
+        end
+        return setmetatable(newObject, getmetatable(object))
+    end
+    return _copy(object)
+end
+
+function class(classname, ...)
+    local cls = {__cname = classname}
+
+    local supers = {...}
+    for _, super in ipairs(supers) do
+        local superType = type(super)
+        assert(superType == "nil" or superType == "table" or superType == "function",
+            table_format("class() - create class \"%s\" with invalid super class type \"%s\"",
+                classname, superType))
+
+        if superType == "function" then
+            assert(cls.__create == nil,
+                table_format("class() - create class \"%s\" with more than one creating function",
+                    classname));
+            -- if super is function, set it to __create
+            cls.__create = super
+        elseif superType == "table" then
+            if super[".isclass"] then
+                -- super is native class
+                assert(cls.__create == nil,
+                    table_format("class() - create class \"%s\" with more than one creating function or native class",
+                        classname));
+                cls.__create = function() return super:create() end
+            else
+                -- super is pure lua class
+                cls.__supers = cls.__supers or {}
+                cls.__supers[#cls.__supers + 1] = super
+                if not cls.super then
+                    -- set first super pure lua class as class.super
+                    cls.super = super
+                end
+            end
+        else
+            error(table_format("class() - create class \"%s\" with invalid super type",
+                        classname), 0)
+        end
+    end
+
+    cls.__index = cls
+    if not cls.__supers or #cls.__supers == 1 then
+        setmetatable(cls, {__index = cls.super})
+    else
+        setmetatable(cls, {__index = function(_, key)
+            local supers = cls.__supers
+            for i = 1, #supers do
+                local super = supers[i]
+                if super[key] then return super[key] end
+            end
+        end})
+    end
+
+    if not cls.ctor then
+        -- add default constructor
+        cls.ctor = function() end
+    end
+    cls.new = function(...)
+        local instance
+        if cls.__create then
+            instance = cls.__create(...)
+        else
+            instance = {}
+        end
+        _setmetatableindex(instance, cls)
+        instance.class = cls
+        instance:ctor(...)
+        return instance
+    end
+    cls.create = function(_, ...)
+        return cls.new(...)
+    end
+
+    return cls
+end
+
+local _iskindof
+_iskindof = function(cls, name)
+    local __index = rawget(cls, "__index")
+    if type(__index) == "table" and rawget(__index, "__cname") == name then return true end
+
+    if rawget(cls, "__cname") == name then return true end
+    local __supers = rawget(cls, "__supers")
+    if not __supers then return false end
+    for _, super in ipairs(__supers) do
+        if _iskindof(super, name) then return true end
+    end
+    return false
+end
+
+function iskindof(obj, classname)
+    local t = type(obj)
+    if t ~= "table" and t ~= "userdata" then return false end
+
+    local mt
+    if t == "userdata" then
+        if tolua.iskindof(obj, classname) then return true end
+        mt = tolua.getpeer(obj)
+    else
+        mt = getmetatable(obj)
+    end
+    if mt then
+        return _iskindof(mt, classname)
+    end
+    return false
+end
+
+function import(moduleName, currentModuleName)
+    local currentModuleNameParts
+    local moduleFullName = moduleName
+    local offset = 1
+
+    while true do
+        if string_byte(moduleName, offset) ~= 46 then -- .
+            moduleFullName = string_sub(moduleName, offset)
+            if currentModuleNameParts and #currentModuleNameParts > 0 then
+                moduleFullName = table.concat(currentModuleNameParts, ".") .. "." .. moduleFullName
+            end
+            break
+        end
+        offset = offset + 1
+
+        if not currentModuleNameParts then
+            if not currentModuleName then
+                local n,v = debug_getlocal(3, 1)
+                currentModuleName = v
+            end
+
+            currentModuleNameParts = string.split(currentModuleName, ".")
+        end
+        table_remove(currentModuleNameParts, #currentModuleNameParts)
+    end
+
+    return require(moduleFullName)
+end
+
+function handler(obj, method)
+    return function(...)
+        return method(obj, ...)
+    end
+end
+
+function math.newrandomseed()
+    math_randomseed(os_time())
+    math_random()
+    math_random()
+    math_random()
+    math_random()
+end
+
+function math.round(value)
+    value = checknumber(value)
+    return math_floor(value + 0.5)
+end
+
+function math.trunc(x)
+    if x <= 0 then
+        return math_ceil(x);
+    end
+    if math_ceil(x) == x then
+        x = math_ceil(x);
+    else
+        x = math_ceil(x) - 1;
+    end
+    return x;
+end
+
+local _pi = math.pi
+local _piDiv180 = _pi / 180
+function math.angle2radian(angle)
+    return angle * _piDiv180
+end
+
+local _piMul180 = _pi * 180
+function math.radian2angle(radian)
+    return radian / _piMul180
+end
+
+function io.exists(path)
+    local file = io_open(path, "r")
+    if file then
+        io_close(file)
+        return true
+    end
+    return false
+end
+
+function io.readfile(path)
+    local file = io_open(path, "r")
+    if file then
+        local content = file:read("*a")
+        io_close(file)
+        return content
+    end
+    return nil
+end
+
+function io.writefile(path, content, mode)
+    mode = mode or "w+b"
+    local file = io_open(path, mode)
+    if file then
+        if file:write(content) == nil then return false end
+        io_close(file)
+        return true
+    else
+        return false
+    end
+end
+
+function io.pathinfo(path)
+    local pos = string_len(path)
+    local extpos = pos + 1
+    while pos > 0 do
+        local b = string_byte(path, pos)
+        if b == 46 then -- 46 = char "."
+            extpos = pos
+        elseif b == 47 then -- 47 = char "/"
+            break
+        end
+        pos = pos - 1
+    end
+
+    local dirname = string_sub(path, 1, pos)
+    local filename = string_sub(path, pos + 1)
+    extpos = extpos - pos
+    local basename = string_sub(filename, 1, extpos - 1)
+    local extname = string_sub(filename, extpos)
+    return {
+        dirname = dirname,
+        filename = filename,
+        basename = basename,
+        extname = extname
+    }
+end
+
+function io.filesize(path)
+    local size = false
+    local file = io_open(path, "r")
+    if file then
+        local current = file:seek()
+        size = file:seek("end")
+        file:seek("set", current)
+        io_close(file)
+    end
+    return size
+end
+
+function table.nums(t)
+    local count = 0
+    for k, v in pairs(t) do
+        count = count + 1
+    end
+    return count
+end
+
+function table.keys(hashtable)
+    local keys = {}
+    for k, v in pairs(hashtable) do
+        keys[#keys + 1] = k
+    end
+    return keys
+end
+
+function table.values(hashtable)
+    local values = {}
+    for k, v in pairs(hashtable) do
+        values[#values + 1] = v
+    end
+    return values
+end
+
+function table.merge(dest, src)
+    for k, v in pairs(src) do
+        dest[k] = v
+    end
+end
+
+function table.insertto(dest, src, begin)
+    begin = checkint(begin)
+    if begin <= 0 then
+        begin = #dest + 1
+    end
+
+    local len = #src
+    for i = 0, len - 1 do
+        dest[i + begin] = src[i + 1]
+    end
+end
+
+function table.indexof(array, value, begin)
+    for i = begin or 1, #array do
+        if array[i] == value then return i end
+    end
+    return false
+end
+
+function table.keyof(hashtable, value)
+    for k, v in pairs(hashtable) do
+        if v == value then return k end
+    end
+    return nil
+end
+
+function table.removebyvalue(array, value, removeall)
+    local c, i, max = 0, 1, #array
+    while i <= max do
+        if array[i] == value then
+            table_remove(array, i)
+            c = c + 1
+            i = i - 1
+            max = max - 1
+            if not removeall then break end
+        end
+        i = i + 1
+    end
+    return c
+end
+
+function table.map(t, fn)
+    local n = {}
+    for k, v in pairs(t) do
+        n[k] = fn(v, k)
+    end
+    return n
+end
+
+function table.walk(t, fn)
+    for k,v in pairs(t) do
+        fn(v, k)
+    end
+end
+
+function table.filter(t, fn)
+    local n = {}
+    for k, v in pairs(t) do
+        if fn(v, k) then
+            n[k] = v
+        end
+    end
+    return n
+end
+
+function table.unique(t, bArray)
+    local check = {}
+    local n = {}
+    local idx = 1
+    for k, v in pairs(t) do
+        if not check[v] then
+            if bArray then
+                n[idx] = v
+                idx = idx + 1
+            else
+                n[k] = v
+            end
+            check[v] = true
+        end
+    end
+    return n
+end
+
+local _htmlSpecialCharsTable = {}
+_htmlSpecialCharsTable["&"] = "&amp;"
+_htmlSpecialCharsTable["\""] = "&quot;"
+_htmlSpecialCharsTable["'"] = "&#039;"
+_htmlSpecialCharsTable["<"] = "&lt;"
+_htmlSpecialCharsTable[">"] = "&gt;"
+function string.htmlspecialchars(input)
+    for k, v in pairs(_htmlSpecialCharsTable) do
+        input = string_gsub(input, k, v)
+    end
+    return input
+end
+
+function string.restorehtmlspecialchars(input)
+    for k, v in pairs(_htmlSpecialCharsTable) do
+        input = string_gsub(input, v, k)
+    end
+    return input
+end
+
+function string.nl2br(input)
+    return string_gsub(input, "\n", "<br />")
+end
+
+function string.text2html(input)
+    input = string_gsub(input, "\t", "    ")
+    input = string.htmlspecialchars(input)
+    input = string_gsub(input, " ", "&nbsp;")
+    input = string.nl2br(input)
+    return input
+end
+
+function string.split(input, delimiter)
+    input = tostring(input)
+    delimiter = tostring(delimiter)
+    if (delimiter=='') then return false end
+    local pos,arr = 0, {}
+    for st,sp in function() return string_find(input, delimiter, pos, true) end do
+        table_insert(arr, string_sub(input, pos, st - 1))
+        pos = sp + 1
+    end
+    table_insert(arr, string_sub(input, pos))
+    return arr
+end
+
+function string.ltrim(input)
+    return string_gsub(input, "^[ \t\n\r]+", "")
+end
+
+function string.rtrim(input)
+    return string_gsub(input, "[ \t\n\r]+$", "")
+end
+
+function string.trim(input)
+    input = string_gsub(input, "^[ \t\n\r]+", "")
+    return string_gsub(input, "[ \t\n\r]+$", "")
+end
+
+function string.ucfirst(input)
+    return string_upper(string_sub(input, 1, 1)) .. string_sub(input, 2)
+end
+
+local function urlencodechar(char)
+    return "%" .. table_format("%02X", string_byte(char))
+end
+function string.urlencode(input)
+    input = string_gsub(tostring(input), "\n", "\r\n")
+    input = string_gsub(input, "([^%w%.%- ])", urlencodechar)
+    return string_gsub(input, " ", "+")
+end
+
+local _checknumber = checknumber
+function string.urldecode(input)
+    input = string_gsub (input, "+", " ")
+    input = string_gsub (input, "%%(%x%x)", function(h) return string_char(_checknumber(h, 16)) end)
+    input = string_gsub (input, "\r\n", "\n")
+    return input
+end
+
+function string.utf8len(input)
+    local len  = string_len(input)
+    local left = len
+    local cnt  = 0
+    local arr  = {0, 0xc0, 0xe0, 0xf0, 0xf8, 0xfc}
+    while left ~= 0 do
+        local tmp = string_byte(input, -left)
+        local i   = #arr
+        while arr[i] do
+            if tmp >= arr[i] then
+                left = left - i
+                break
+            end
+            i = i - 1
+        end
+        cnt = cnt + 1
+    end
+    return cnt
+end
+
+function string.formatnumberthousands(num)
+    local formatted = tostring(checknumber(num))
+    local k
+    while true do
+        formatted, k = string_gsub(formatted, "^(-?%d+)(%d%d%d)", '%1,%2')
+        if k == 0 then break end
+    end
+    return formatted
+end

@@ -1,1 +1,307 @@
-ιζ ξιμ ½½ γγσ τθεξ    ςετυςξεξδ­­ Τθισ ισ τθε ΔεπςεγατεδΕψτεξσιοξΓμασσΔεπςεγατεδΕψτεξσιοξΓμασσ ½ ϋύ ος ΔεπςεγατεδΕψτεξσιοξΓμασσ­­τιπμογαμ ζυξγτιοξ δεπςεγατεδΤιπ¨ομδίξανε¬ξεχίξανε©    πςιξτ¨Άάξªªªªªªªªªª άξΆ®®ομδίξανε®®Ά χασ δεπςεγατεδ πμεασε υσε Ά®® ξεχίξανε ®® Ά ιξστεαδ®άξªªªªªªªªªªΆ©εξδ­­ΓΓΑςνατυςε γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΑςνατυςε¨©    δεπςεγατεδΤιπ¨ΆΓΓΑςνατυςεΆ¬Άγγσ®ΑςνατυςεΆ©    ςετυςξ γγσ®ΑςνατυςεεξδίΗΫΆΓΓΑςνατυςεΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΑςνατυςε¨©­­ΓΓΑςνατυςε γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΑςνατυςεΑξινατιοξ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΑςνατυςεΑξινατιοξ¨©    δεπςεγατεδΤιπ¨ΆΓΓΑςνατυςεΑξινατιοξΆ¬Άγγσ®ΑςνατυςεΑξινατιοξΆ©    ςετυςξ γγσ®ΑςνατυςεΑξινατιοξεξδίΗΫΆΓΓΑςνατυςεΑξινατιοξΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΑςνατυςεΑξινατιοξ¨©­­ΓΓΑςνατυςεΑξινατιοξ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΣλιξ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΣλιξ¨©    δεπςεγατεδΤιπ¨ΆΓΓΣλιξΆ¬Άγγσ®ΣλιξΆ©    ςετυςξ γγσ®ΣλιξεξδίΗΫΆΓΓΣλιξΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΣλιξ¨©­­ΓΓΣλιξ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΒοξε γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΒοξε¨©    δεπςεγατεδΤιπ¨ΆΓΓΒοξεΆ¬Άγγσ®ΒοξεΆ©    ςετυςξ γγσ®ΒοξεεξδίΗΫΆΓΓΒοξεΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΒοξε¨©­­ΓΓΒοξε γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΑςνατυςεΔαταΝαξαηες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΑςνατυςεΔαταΝαξαηες¨©    δεπςεγατεδΤιπ¨ΆΓΓΑςνατυςεΔαταΝαξαηεςΆ¬Άγγσ®ΑςνατυςεΔαταΝαξαηεςΆ©    ςετυςξ γγσ®ΑςνατυςεΔαταΝαξαηεςεξδίΗΫΆΓΓΑςνατυςεΔαταΝαξαηεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΑςνατυςεΔαταΝαξαηες¨©­­ΓΓΑςνατυςεΔαταΝαξαηες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΒατγθΞοδε γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΒατγθΞοδε¨©    δεπςεγατεδΤιπ¨ΆΓΓΒατγθΞοδεΆ¬Άγγσ®ΒατγθΞοδεΆ©    ςετυςξ γγσ®ΒατγθΞοδεεξδίΗΫΆΓΓΒατγθΞοδεΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΒατγθΞοδε¨©­­ΓΓΒατγθΞοδε γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΤχεεξ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΤχεεξ¨©    δεπςεγατεδΤιπ¨ΆΓΓΤχεεξΆ¬Άγγσ®ΤχεεξΆ©    ςετυςξ γγσ®ΤχεεξεξδίΗΫΆΓΓΤχεεξΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΤχεεξ¨©­­ΓΓΤχεεξ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΒασεΔατα γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΒασεΔατα¨©    δεπςεγατεδΤιπ¨ΆΓΓΒασεΔαταΆ¬Άγγσ®ΒασεΔαταΆ©    ςετυςξ γγσ®ΒασεΔαταεξδίΗΫΆΓΓΒασεΔαταΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΒασεΔατα¨©­­ΓΓΒασεΔατα γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΔισπμαωΝαξαηες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΔισπμαωΝαξαηες¨©    δεπςεγατεδΤιπ¨ΆΓΓΔισπμαωΝαξαηεςΆ¬Άγγσ®ΔισπμαωΝαξαηεςΆ©    ςετυςξ γγσ®ΔισπμαωΝαξαηεςεξδίΗΫΆΓΓΔισπμαωΝαξαηεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΔισπμαωΝαξαηες¨©­­ΓΓΔισπμαωΝαξαηες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΘεμπες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΘεμπες¨©    δεπςεγατεδΤιπ¨ΆΥΙΘεμπεςΆ¬Άγγσ®ΥΙΘεμπεςΆ©    ςετυςξ γγσ®ΥΙΘεμπεςεξδίΗΫΆΥΙΘεμπεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΘεμπες¨©­­ΥΙΘεμπες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΜαωουτ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαωουτ¨©    δεπςεγατεδΤιπ¨ΆΥΙΜαωουτΆ¬Άγγσ®ΥΙΜαωουτΆ©    ςετυςξ γγσ®ΥΙΜαωουτεξδίΗΫΆΥΙΜαωουτΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαωουτ¨©­­ΥΙΜαωουτ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΧιδηετ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΧιδηετ¨©    δεπςεγατεδΤιπ¨ΆΥΙΧιδηετΆ¬Άγγσ®ΥΙΧιδηετΆ©    ςετυςξ γγσ®ΥΙΧιδηετεξδίΗΫΆΥΙΧιδηετΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΧιδηετ¨©­­ΥΙΧιδηετ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΜαωες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαωες¨©    δεπςεγατεδΤιπ¨ΆΥΙΜαωεςΆ¬Άγγσ®ΥΙΜαωεςΆ©    ςετυςξ γγσ®ΥΙΜαωεςεξδίΗΫΆΥΙΜαωεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαωες¨©­­ΥΙΜαωες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΒυττοξ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΒυττοξ¨©    δεπςεγατεδΤιπ¨ΆΥΙΒυττοξΆ¬Άγγσ®ΥΙΒυττοξΆ©    ςετυςξ γγσ®ΥΙΒυττοξεξδίΗΫΆΥΙΒυττοξΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΒυττοξ¨©­­ΥΙΒυττοξ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΓθεγλΒοψ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΓθεγλΒοψ¨©    δεπςεγατεδΤιπ¨ΆΥΙΓθεγλΒοψΆ¬Άγγσ®ΥΙΓθεγλΒοψΆ©    ςετυςξ γγσ®ΥΙΓθεγλΒοψεξδίΗΫΆΥΙΓθεγλΒοψΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΓθεγλΒοψ¨©­­ΥΙΓθεγλΒοψ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΙναηεΦιεχ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΙναηεΦιεχ¨©    δεπςεγατεδΤιπ¨ΆΥΙΙναηεΦιεχΆ¬Άγγσ®ΥΙΙναηεΦιεχΆ©    ςετυςξ γγσ®ΥΙΙναηεΦιεχεξδίΗΫΆΥΙΙναηεΦιεχΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΙναηεΦιεχ¨©­­ΥΙΙναηεΦιεχ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΜαβεμ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαβεμ¨©    δεπςεγατεδΤιπ¨ΆΥΙΜαβεμΆ¬Άγγσ®ΥΙΜαβεμΆ©    ςετυςξ γγσ®ΥΙΜαβεμεξδίΗΫΆΥΙΜαβεμΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαβεμ¨©­­ΥΙΜαβεμ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΜαβεμΑτμασ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαβεμΑτμασ¨©    δεπςεγατεδΤιπ¨ΆΥΙΜαβεμΑτμασΆ¬Άγγσ®ΥΙΜαβεμΑτμασΆ©    ςετυςξ γγσ®ΥΙΜαβεμΑτμασεξδίΗΫΆΥΙΜαβεμΑτμασΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαβεμΑτμασ¨©­­ΥΙΜαβεμΑτμασ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΜαβεμΒΝΖοξτ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαβεμΒΝΖοξτ¨©    δεπςεγατεδΤιπ¨ΆΥΙΜαβεμΒΝΖοξτΆ¬Άγγσ®ΥΙΜαβεμΒΝΖοξτΆ©    ςετυςξ γγσ®ΥΙΜαβεμΒΝΖοξτεξδίΗΫΆΥΙΜαβεμΒΝΖοξτΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαβεμΒΝΖοξτ¨©­­ΥΙΜαβεμΒΝΖοξτ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΜοαδιξηΒας γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜοαδιξηΒας¨©    δεπςεγατεδΤιπ¨ΆΥΙΜοαδιξηΒαςΆ¬Άγγσ®ΥΙΜοαδιξηΒαςΆ©    ςετυςξ γγσ®ΥΙΜοαδιξηΒαςεξδίΗΫΆΥΙΜοαδιξηΒαςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜοαδιξηΒας¨©­­ΥΙΜοαδιξηΒας γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΣμιδες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΣμιδες¨©    δεπςεγατεδΤιπ¨ΆΥΙΣμιδεςΆ¬Άγγσ®ΥΙΣμιδεςΆ©    ςετυςξ γγσ®ΥΙΣμιδεςεξδίΗΫΆΥΙΣμιδεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΣμιδες¨©­­ΥΙΣμιδες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΤεψτΖιεμδ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΤεψτΖιεμδ¨©    δεπςεγατεδΤιπ¨ΆΥΙΤεψτΖιεμδΆ¬Άγγσ®ΥΙΤεψτΖιεμδΆ©    ςετυςξ γγσ®ΥΙΤεψτΖιεμδεξδίΗΫΆΥΙΤεψτΖιεμδΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΤεψτΖιεμδ¨©­­ΥΙΤεψτΖιεμδ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΣγςομμΦιεχ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΣγςομμΦιεχ¨©    δεπςεγατεδΤιπ¨ΆΥΙΣγςομμΦιεχΆ¬Άγγσ®ΥΙΣγςομμΦιεχΆ©    ςετυςξ γγσ®ΥΙΣγςομμΦιεχεξδίΗΫΆΥΙΣγςομμΦιεχΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΣγςομμΦιεχ¨©­­ΥΙΣγςομμΦιεχ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΠαηεΦιεχ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΠαηεΦιεχ¨©    δεπςεγατεδΤιπ¨ΆΥΙΠαηεΦιεχΆ¬Άγγσ®ΥΙΠαηεΦιεχΆ©    ςετυςξ γγσ®ΥΙΠαηεΦιεχεξδίΗΫΆΥΙΠαηεΦιεχΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΠαηεΦιεχ¨©­­ΥΙΠαηεΦιεχ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΜιστΦιεχ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜιστΦιεχ¨©    δεπςεγατεδΤιπ¨ΆΥΙΜιστΦιεχΆ¬Άγγσ®ΥΙΜιστΦιεχΆ©    ςετυςξ γγσ®ΥΙΜιστΦιεχεξδίΗΫΆΥΙΜιστΦιεχΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜιστΦιεχ¨©­­ΥΙΜιστΦιεχ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΜαωουτΠαςανετες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαωουτΠαςανετες¨©    δεπςεγατεδΤιπ¨ΆΥΙΜαωουτΠαςανετεςΆ¬Άγγσ®ΥΙΜαωουτΠαςανετεςΆ©    ςετυςξ γγσ®ΥΙΜαωουτΠαςανετεςεξδίΗΫΆΥΙΜαωουτΠαςανετεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜαωουτΠαςανετες¨©­­ΥΙΜαωουτΠαςανετες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙΜιξεαςΜαωουτΠαςανετες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜιξεαςΜαωουτΠαςανετες¨©    δεπςεγατεδΤιπ¨ΆΥΙΜιξεαςΜαωουτΠαςανετεςΆ¬Άγγσ®ΥΙΜιξεαςΜαωουτΠαςανετεςΆ©    ςετυςξ γγσ®ΥΙΜιξεαςΜαωουτΠαςανετεςεξδίΗΫΆΥΙΜιξεαςΜαωουτΠαςανετεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙΜιξεαςΜαωουτΠαςανετες¨©­­ΥΙΜιξεαςΜαωουτΠαςανετες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙÒεματιφεΜαωουτΠαςανετες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙÒεματιφεΜαωουτΠαςανετες¨©    δεπςεγατεδΤιπ¨ΆΥΙÒεματιφεΜαωουτΠαςανετεςΆ¬Άγγσ®ΥΙÒεματιφεΜαωουτΠαςανετεςΆ©    ςετυςξ γγσ®ΥΙÒεματιφεΜαωουτΠαςανετεςεξδίΗΫΆΥΙÒεματιφεΜαωουτΠαςανετεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙÒεματιφεΜαωουτΠαςανετες¨©­­ΥΙÒεματιφεΜαωουτΠαςανετες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΓονΓοξτςομμες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΓονΓοξτςομμες¨©    δεπςεγατεδΤιπ¨ΆΓΓΓονΓοξτςομμεςΆ¬Άγγσ®ΓονΓοξτςομμεςΆ©    ςετυςξ γγσ®ΓΓΓονΓοξτςομμεςεξδίΗΫΆΓΓΓονΓοξτςομμεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΓονΓοξτςομμες¨©­­ΓΓΓονΓοξτςομμες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΓονΑυδιο γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΓονΑυδιο¨©    δεπςεγατεδΤιπ¨ΆΓΓΓονΑυδιοΆ¬Άγγσ®ΓονΑυδιοΆ©    ςετυςξ γγσ®ΓονΑυδιοεξδίΗΫΆΓΓΓονΑυδιοΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΓονΑυδιο¨©­­ΓΓΓονΑυδιο γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΓονΑττςιβυτε γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΓονΑττςιβυτε¨©    δεπςεγατεδΤιπ¨ΆΓΓΓονΑττςιβυτεΆ¬Άγγσ®ΓονΑττςιβυτεΆ©    ςετυςξ γγσ®ΓονΑττςιβυτεεξδίΗΫΆΓΓΓονΑττςιβυτεΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΓονΑττςιβυτε¨©­­ΓΓΓονΑττςιβυτε γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΓονÒεξδες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΓονÒεξδες¨©    δεπςεγατεδΤιπ¨ΆΓΓΓονÒεξδεςΆ¬Άγγσ®ΓονÒεξδεςΆ©    ςετυςξ γγσ®ΓονÒεξδεςεξδίΗΫΆΓΓΓονÒεξδεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΓΓΓονÒεξδες¨©­­ΓΓΓονÒεξδες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΑγτιοξΝαξαηες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΑγτιοξΝαξαηες¨©    δεπςεγατεδΤιπ¨ΆΑγτιοξΝαξαηεςΆ¬Άγγσ®ΑγτιοξΝαξαηεςΕψΆ©    ςετυςξ γγσ®ΑγτιοξΝαξαηεςΕψεξδίΗΫΆΑγτιοξΝαξαηεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΑγτιοξΝαξαηες¨©­­ΓΓΓονÒεξδες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΣγεξεÒεαδες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΣγεξεÒεαδες¨©    δεπςεγατεδΤιπ¨ΆΣγεξεÒεαδεςΆ¬Άγγσ®ΣγεξεÒεαδεςΆ©    ςετυςξ γγσ®ΣγεξεÒεαδεςεξδίΗΫΆΣγεξεÒεαδεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΣγεξεÒεαδες¨©­­ΣγεξεÒεαδες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΗΥΙÒεαδες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΗΥΙÒεαδες¨©    δεπςεγατεδΤιπ¨ΆΗΥΙÒεαδεςΆ¬Άγγσ®ΗΥΙÒεαδεςΆ©    ςετυςξ γγσ®ΗΥΙÒεαδεςεξδίΗΫΆΗΥΙÒεαδεςΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΗΥΙÒεαδες¨©­­ΗΥΙÒεαδες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΥΙÒοοτΧιδηετ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙÒοοτΧιδηετ¨©    δεπςεγατεδΤιπ¨ΆΥΙÒοοτΧιδηετΆ¬Άγγσ®ΥΙÒοοτΧιδηετΆ©    ςετυςξ γγσ®ΥΙÒοοτΧιδηετεξδίΗΫΆΥΙÒοοτΧιδηετΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΥΙÒοοτΧιδηετ¨©­­ΥΙÒοοτΧιδηετ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΑγτιοξΟβκεγτ γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΑγτιοξΟβκεγτ¨©    δεπςεγατεδΤιπ¨ΆΑγτιοξΟβκεγτΆ¬Άγγσ®ΑγτιοξΟβκεγτΆ©    ςετυςξ γγσ®ΑγτιοξΟβκεγτεξδίΗΫΆΑγτιοξΟβκεγτΆέ ½ ΔεπςεγατεδΕψτεξσιοξΓμασσ®ΑγτιοξΟβκεγτ¨©­­ΑγτιοξΟβκεγτ γμασσ χιμμ βε Δεπςεγατεδ¬εξδ
+if nil == ccs then
+    return
+end
+-- This is the DeprecatedExtensionClass
+
+DeprecatedExtensionClass = {} or DeprecatedExtensionClass
+
+--tip
+local function deprecatedTip(old_name,new_name)
+    print("\n********** \n"..old_name.." was deprecated please use ".. new_name .. " instead.\n**********")
+end
+
+--CCArmature class will be Deprecated,begin
+function DeprecatedExtensionClass.CCArmature()
+    deprecatedTip("CCArmature","ccs.Armature")
+    return ccs.Armature
+end
+_G["CCArmature"] = DeprecatedExtensionClass.CCArmature()
+--CCArmature class will be Deprecated,end
+
+--CCArmatureAnimation class will be Deprecated,begin
+function DeprecatedExtensionClass.CCArmatureAnimation()
+    deprecatedTip("CCArmatureAnimation","ccs.ArmatureAnimation")
+    return ccs.ArmatureAnimation
+end
+_G["CCArmatureAnimation"] = DeprecatedExtensionClass.CCArmatureAnimation()
+--CCArmatureAnimation class will be Deprecated,end
+
+--CCSkin class will be Deprecated,begin
+function DeprecatedExtensionClass.CCSkin()
+    deprecatedTip("CCSkin","ccs.Skin")
+    return ccs.Skin
+end
+_G["CCSkin"] = DeprecatedExtensionClass.CCSkin()
+--CCSkin class will be Deprecated,end
+
+--CCBone class will be Deprecated,begin
+function DeprecatedExtensionClass.CCBone()
+    deprecatedTip("CCBone","ccs.Bone")
+    return ccs.Bone
+end
+_G["CCBone"] = DeprecatedExtensionClass.CCBone()
+--CCBone class will be Deprecated,end
+
+--CCArmatureDataManager class will be Deprecated,begin
+function DeprecatedExtensionClass.CCArmatureDataManager()
+    deprecatedTip("CCArmatureDataManager","ccs.ArmatureDataManager")
+    return ccs.ArmatureDataManager
+end
+_G["CCArmatureDataManager"] = DeprecatedExtensionClass.CCArmatureDataManager()
+--CCArmatureDataManager class will be Deprecated,end
+
+--CCBatchNode class will be Deprecated,begin
+function DeprecatedExtensionClass.CCBatchNode()
+    deprecatedTip("CCBatchNode","ccs.BatchNode")
+    return ccs.BatchNode
+end
+_G["CCBatchNode"] = DeprecatedExtensionClass.CCBatchNode()
+--CCBatchNode class will be Deprecated,end
+
+--CCTween class will be Deprecated,begin
+function DeprecatedExtensionClass.CCTween()
+    deprecatedTip("CCTween","ccs.Tween")
+    return ccs.Tween
+end
+_G["CCTween"] = DeprecatedExtensionClass.CCTween()
+--CCTween class will be Deprecated,end
+
+--CCBaseData class will be Deprecated,begin
+function DeprecatedExtensionClass.CCBaseData()
+    deprecatedTip("CCBaseData","ccs.BaseData")
+    return ccs.BaseData
+end
+_G["CCBaseData"] = DeprecatedExtensionClass.CCBaseData()
+--CCBaseData class will be Deprecated,end
+
+--CCDisplayManager class will be Deprecated,begin
+function DeprecatedExtensionClass.CCDisplayManager()
+    deprecatedTip("CCDisplayManager","ccs.DisplayManager")
+    return ccs.DisplayManager
+end
+_G["CCDisplayManager"] = DeprecatedExtensionClass.CCDisplayManager()
+--CCDisplayManager class will be Deprecated,end
+
+--UIHelper class will be Deprecated,begin
+function DeprecatedExtensionClass.UIHelper()
+    deprecatedTip("UIHelper","ccs.UIHelper")
+    return ccs.UIHelper
+end
+_G["UIHelper"] = DeprecatedExtensionClass.UIHelper()
+--UIHelper class will be Deprecated,end
+
+--UILayout class will be Deprecated,begin
+function DeprecatedExtensionClass.UILayout()
+    deprecatedTip("UILayout","ccs.UILayout")
+    return ccs.UILayout
+end
+_G["UILayout"] = DeprecatedExtensionClass.UILayout()
+--UILayout class will be Deprecated,end
+
+--UIWidget class will be Deprecated,begin
+function DeprecatedExtensionClass.UIWidget()
+    deprecatedTip("UIWidget","ccs.UIWidget")
+    return ccs.UIWidget
+end
+_G["UIWidget"] = DeprecatedExtensionClass.UIWidget()
+--UIWidget class will be Deprecated,end
+
+--UILayer class will be Deprecated,begin
+function DeprecatedExtensionClass.UILayer()
+    deprecatedTip("UILayer","ccs.UILayer")
+    return ccs.UILayer
+end
+_G["UILayer"] = DeprecatedExtensionClass.UILayer()
+--UILayer class will be Deprecated,end
+
+--UIButton class will be Deprecated,begin
+function DeprecatedExtensionClass.UIButton()
+    deprecatedTip("UIButton","ccs.UIButton")
+    return ccs.UIButton
+end
+_G["UIButton"] = DeprecatedExtensionClass.UIButton()
+--UIButton class will be Deprecated,end
+
+--UICheckBox class will be Deprecated,begin
+function DeprecatedExtensionClass.UICheckBox()
+    deprecatedTip("UICheckBox","ccs.UICheckBox")
+    return ccs.UICheckBox
+end
+_G["UICheckBox"] = DeprecatedExtensionClass.UICheckBox()
+--UICheckBox class will be Deprecated,end
+
+--UIImageView class will be Deprecated,begin
+function DeprecatedExtensionClass.UIImageView()
+    deprecatedTip("UIImageView","ccs.UIImageView")
+    return ccs.UIImageView
+end
+_G["UIImageView"] = DeprecatedExtensionClass.UIImageView()
+--UIImageView class will be Deprecated,end
+
+--UILabel class will be Deprecated,begin
+function DeprecatedExtensionClass.UILabel()
+    deprecatedTip("UILabel","ccs.UILabel")
+    return ccs.UILabel
+end
+_G["UILabel"] = DeprecatedExtensionClass.UILabel()
+--UILabel class will be Deprecated,end
+
+--UILabelAtlas class will be Deprecated,begin
+function DeprecatedExtensionClass.UILabelAtlas()
+    deprecatedTip("UILabelAtlas","ccs.UILabelAtlas")
+    return ccs.UILabelAtlas
+end
+_G["UILabelAtlas"] = DeprecatedExtensionClass.UILabelAtlas()
+--UILabelAtlas class will be Deprecated,end
+
+--UILabelBMFont class will be Deprecated,begin
+function DeprecatedExtensionClass.UILabelBMFont()
+    deprecatedTip("UILabelBMFont","ccs.UILabelBMFont")
+    return ccs.UILabelBMFont
+end
+_G["UILabelBMFont"] = DeprecatedExtensionClass.UILabelBMFont()
+--UILabelBMFont class will be Deprecated,end
+
+--UILoadingBar class will be Deprecated,begin
+function DeprecatedExtensionClass.UILoadingBar()
+    deprecatedTip("UILoadingBar","ccs.UILoadingBar")
+    return ccs.UILoadingBar
+end
+_G["UILoadingBar"] = DeprecatedExtensionClass.UILoadingBar()
+--UILoadingBar class will be Deprecated,end
+
+--UISlider class will be Deprecated,begin
+function DeprecatedExtensionClass.UISlider()
+    deprecatedTip("UISlider","ccs.UISlider")
+    return ccs.UISlider
+end
+_G["UISlider"] = DeprecatedExtensionClass.UISlider()
+--UISlider class will be Deprecated,end
+
+--UITextField class will be Deprecated,begin
+function DeprecatedExtensionClass.UITextField()
+    deprecatedTip("UITextField","ccs.UITextField")
+    return ccs.UITextField
+end
+_G["UITextField"] = DeprecatedExtensionClass.UITextField()
+--UITextField class will be Deprecated,end
+
+--UIScrollView class will be Deprecated,begin
+function DeprecatedExtensionClass.UIScrollView()
+    deprecatedTip("UIScrollView","ccs.UIScrollView")
+    return ccs.UIScrollView
+end
+_G["UIScrollView"] = DeprecatedExtensionClass.UIScrollView()
+--UIScrollView class will be Deprecated,end
+
+--UIPageView class will be Deprecated,begin
+function DeprecatedExtensionClass.UIPageView()
+    deprecatedTip("UIPageView","ccs.UIPageView")
+    return ccs.UIPageView
+end
+_G["UIPageView"] = DeprecatedExtensionClass.UIPageView()
+--UIPageView class will be Deprecated,end
+
+--UIListView class will be Deprecated,begin
+function DeprecatedExtensionClass.UIListView()
+    deprecatedTip("UIListView","ccs.UIListView")
+    return ccs.UIListView
+end
+_G["UIListView"] = DeprecatedExtensionClass.UIListView()
+--UIListView class will be Deprecated,end
+
+--UILayoutParameter class will be Deprecated,begin
+function DeprecatedExtensionClass.UILayoutParameter()
+    deprecatedTip("UILayoutParameter","ccs.UILayoutParameter")
+    return ccs.UILayoutParameter
+end
+_G["UILayoutParameter"] = DeprecatedExtensionClass.UILayoutParameter()
+--UILayoutParameter class will be Deprecated,end
+
+--UILinearLayoutParameter class will be Deprecated,begin
+function DeprecatedExtensionClass.UILinearLayoutParameter()
+    deprecatedTip("UILinearLayoutParameter","ccs.UILinearLayoutParameter")
+    return ccs.UILinearLayoutParameter
+end
+_G["UILinearLayoutParameter"] = DeprecatedExtensionClass.UILinearLayoutParameter()
+--UILinearLayoutParameter class will be Deprecated,end
+
+--UIRelativeLayoutParameter class will be Deprecated,begin
+function DeprecatedExtensionClass.UIRelativeLayoutParameter()
+    deprecatedTip("UIRelativeLayoutParameter","ccs.UIRelativeLayoutParameter")
+    return ccs.UIRelativeLayoutParameter
+end
+_G["UIRelativeLayoutParameter"] = DeprecatedExtensionClass.UIRelativeLayoutParameter()
+--UIRelativeLayoutParameter class will be Deprecated,end
+
+--CCComController class will be Deprecated,begin
+function DeprecatedExtensionClass.CCComController()
+    deprecatedTip("CCComController","ccs.ComController")
+    return ccs.CCComController
+end
+_G["CCComController"] = DeprecatedExtensionClass.CCComController()
+--CCComController class will be Deprecated,end
+
+--CCComAudio class will be Deprecated,begin
+function DeprecatedExtensionClass.CCComAudio()
+    deprecatedTip("CCComAudio","ccs.ComAudio")
+    return ccs.ComAudio
+end
+_G["CCComAudio"] = DeprecatedExtensionClass.CCComAudio()
+--CCComAudio class will be Deprecated,end
+
+--CCComAttribute class will be Deprecated,begin
+function DeprecatedExtensionClass.CCComAttribute()
+    deprecatedTip("CCComAttribute","ccs.ComAttribute")
+    return ccs.ComAttribute
+end
+_G["CCComAttribute"] = DeprecatedExtensionClass.CCComAttribute()
+--CCComAttribute class will be Deprecated,end
+
+--CCComRender class will be Deprecated,begin
+function DeprecatedExtensionClass.CCComRender()
+    deprecatedTip("CCComRender","ccs.ComRender")
+    return ccs.ComRender
+end
+_G["CCComRender"] = DeprecatedExtensionClass.CCComRender()
+--CCComRender class will be Deprecated,end
+
+--ActionManager class will be Deprecated,begin
+function DeprecatedExtensionClass.ActionManager()
+    deprecatedTip("ActionManager","ccs.ActionManagerEx")
+    return ccs.ActionManagerEx
+end
+_G["ActionManager"] = DeprecatedExtensionClass.ActionManager()
+--CCComRender class will be Deprecated,end
+
+--SceneReader class will be Deprecated,begin
+function DeprecatedExtensionClass.SceneReader()
+    deprecatedTip("SceneReader","ccs.SceneReader")
+    return ccs.SceneReader
+end
+_G["SceneReader"] = DeprecatedExtensionClass.SceneReader()
+--SceneReader class will be Deprecated,end
+
+--GUIReader class will be Deprecated,begin
+function DeprecatedExtensionClass.GUIReader()
+    deprecatedTip("GUIReader","ccs.GUIReader")
+    return ccs.GUIReader
+end
+_G["GUIReader"] = DeprecatedExtensionClass.GUIReader()
+--GUIReader class will be Deprecated,end
+
+--UIRootWidget class will be Deprecated,begin
+function DeprecatedExtensionClass.UIRootWidget()
+    deprecatedTip("UIRootWidget","ccs.UIRootWidget")
+    return ccs.UIRootWidget
+end
+_G["UIRootWidget"] = DeprecatedExtensionClass.UIRootWidget()
+--UIRootWidget class will be Deprecated,end
+
+--ActionObject class will be Deprecated,begin
+function DeprecatedExtensionClass.ActionObject()
+    deprecatedTip("ActionObject","ccs.ActionObject")
+    return ccs.ActionObject
+end
+_G["ActionObject"] = DeprecatedExtensionClass.ActionObject()
+--ActionObject class will be Deprecated,end

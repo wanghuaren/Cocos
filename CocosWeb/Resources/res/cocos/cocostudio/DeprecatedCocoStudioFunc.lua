@@ -1,1 +1,81 @@
-ιζ ξιμ ½½ γγσ τθεξ    ςετυςξεξδ­­τιπμογαμ ζυξγτιοξ δεπςεγατεδΤιπ¨ομδίξανε¬ξεχίξανε©    πςιξτ¨Άάξªªªªªªªªªª άξΆ®®ομδίξανε®®Ά χασ δεπςεγατεδ πμεασε υσε Ά®® ξεχίξανε ®® Ά ιξστεαδ®άξªªªªªªªªªªΆ©εξδ­­ζυξγτιοξσ οζ ΗΥΙÒεαδες χιμμ βε δεπςεγατεδ βεηιξμογαμ ΗΥΙÒεαδεςΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΗΥΙÒεαδεςΔεπςεγατεδ®σθαςεÒεαδες¨©    δεπςεγατεδΤιπ¨ΆΗΥΙÒεαδεςΊσθαςεÒεαδεςΆ¬Άγγσ®ΗΥΙÒεαδεςΊηετΙξσταξγεΆ©    ςετυςξ γγσ®ΗΥΙÒεαδεςΊηετΙξσταξγε¨©εξδΗΥΙÒεαδες®σθαςεÒεαδες ½ ΗΥΙÒεαδεςΔεπςεγατεδ®σθαςεÒεαδεςζυξγτιοξ ΗΥΙÒεαδεςΔεπςεγατεδ®πυςηεΗΥΙÒεαδες¨©    δεπςεγατεδΤιπ¨ΆΗΥΙÒεαδεςΊπυςηεΗΥΙÒεαδεςΆ¬Άγγσ®ΗΥΙÒεαδεςΊδεστςοωΙξσταξγεΆ©    ςετυςξ γγσ®ΗΥΙÒεαδεςΊδεστςοωΙξσταξγε¨©εξδΗΥΙÒεαδες®πυςηεΗΥΙÒεαδες ½ ΗΥΙÒεαδεςΔεπςεγατεδ®πυςηεΗΥΙÒεαδες­­ζυξγτιοξσ οζ ΗΥΙÒεαδες χιμμ βε δεπςεγατεδ εξδ­­ζυξγτιοξσ οζ ΣγεξεÒεαδες χιμμ βε δεπςεγατεδ βεηιξμογαμ ΣγεξεÒεαδεςΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΣγεξεÒεαδεςΔεπςεγατεδ®σθαςεδΣγεξεÒεαδες¨©    δεπςεγατεδΤιπ¨ΆΣγεξεÒεαδεςΊσθαςεδΣγεξεÒεαδεςΆ¬Άγγσ®ΣγεξεÒεαδεςΊηετΙξσταξγεΆ©    ςετυςξ γγσ®ΣγεξεÒεαδεςΊηετΙξσταξγε¨©εξδΣγεξεÒεαδες®σθαςεδΣγεξεÒεαδες ½ ΣγεξεÒεαδεςΔεπςεγατεδ®σθαςεδΣγεξεÒεαδεςζυξγτιοξ ΣγεξεÒεαδεςΔεπςεγατεδ®πυςηεΣγεξεÒεαδες¨σεμζ©    δεπςεγατεδΤιπ¨ΆΣγεξεÒεαδεςΊπυςηεΣγεξεÒεαδεςΆ¬Άγγσ®ΣγεξεÒεαδεςΊδεστςοωΙξσταξγεΆ©    ςετυςξ σεμζΊδεστςοωΙξσταξγε¨©εξδΣγεξεÒεαδες®πυςηεΣγεξεÒεαδες ½ ΣγεξεÒεαδεςΔεπςεγατεδ®πυςηεΣγεξεÒεαδες­­ζυξγτιοξσ οζ ΣγεξεÒεαδες χιμμ βε δεπςεγατεδ εξδ­­ζυξγτιοξσ οζ γγσ®ΗΥΙÒεαδες χιμμ βε δεπςεγατεδ βεηιξμογαμ ΓΓΣΗΥΙÒεαδεςΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΓΓΣΗΥΙÒεαδεςΔεπςεγατεδ®πυςηεΗΥΙÒεαδες¨©    δεπςεγατεδΤιπ¨Άγγσ®ΗΥΙÒεαδεςΊπυςηεΗΥΙÒεαδεςΆ¬Άγγσ®ΗΥΙÒεαδεςΊδεστςοωΙξσταξγεΆ©    ςετυςξ γγσ®ΗΥΙÒεαδεςΊδεστςοωΙξσταξγε¨©εξδγγσ®ΗΥΙÒεαδες®πυςηεΗΥΙÒεαδες ½ ΓΓΣΗΥΙÒεαδεςΔεπςεγατεδ®πυςηεΗΥΙÒεαδες­­ζυξγτιοξσ οζ γγσ®ΗΥΙÒεαδες χιμμ βε δεπςεγατεδ εξδ­­ζυξγτιοξσ οζ γγσ®ΑγτιοξΝαξαηεςΕψ χιμμ βε δεπςεγατεδ βεηιξμογαμ ΓΓΣΑγτιοξΝαξαηεςΕψΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΓΓΣΑγτιοξΝαξαηεςΕψΔεπςεγατεδ®δεστςοωΑγτιοξΝαξαηες¨©    δεπςεγατεδΤιπ¨Άγγσ®ΑγτιοξΝαξαηεςΕψΊδεστςοωΑγτιοξΝαξαηεςΆ¬Άγγσ®ΑγτιοξΝαξαηεςΕψΊδεστςοωΙξσταξγεΆ©    ςετυςξ γγσ®ΑγτιοξΝαξαηεςΕψΊδεστςοωΙξσταξγε¨©εξδγγσ®ΑγτιοξΝαξαηεςΕψ®δεστςοωΑγτιοξΝαξαηες ½ ΓΓΣΑγτιοξΝαξαηεςΕψΔεπςεγατεδ®δεστςοωΑγτιοξΝαξαηες­­ζυξγτιοξσ οζ γγσ®ΑγτιοξΝαξαηεςΕψ χιμμ βε δεπςεγατεδ εξδ­­ζυξγτιοξσ οζ γγσ®ΣγεξεÒεαδες χιμμ βε δεπςεγατεδ βεηιξμογαμ ΓΓΣΣγεξεÒεαδεςΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΓΓΣΣγεξεÒεαδεςΔεπςεγατεδ®δεστςοωΣγεξεÒεαδες¨σεμζ©    δεπςεγατεδΤιπ¨Άγγσ®ΣγεξεÒεαδεςΊδεστςοωΣγεξεÒεαδεςΆ¬Άγγσ®ΣγεξεÒεαδεςΊδεστςοωΙξσταξγεΆ©    ςετυςξ σεμζΊδεστςοωΙξσταξγε¨©εξδγγσ®ΣγεξεÒεαδες®δεστςοωΣγεξεÒεαδες ½ ΓΓΣΣγεξεÒεαδεςΔεπςεγατεδ®δεστςοωΣγεξεÒεαδες­­ζυξγτιοξσ οζ γγσ®ΣγεξεÒεαδες χιμμ βε δεπςεγατεδ εξδ­­ζυξγτιοξσ οζ ΓΓΑςνατυςεΔαταΝαξαηες χιμμ βε δεπςεγατεδ βεηιξμογαμ ΓΓΑςνατυςεΔαταΝαξαηεςΔεπςεγατεδ ½ ϋ ύζυξγτιοξ ΓΓΑςνατυςεΔαταΝαξαηεςΔεπςεγατεδ®σθαςεδΑςνατυςεΔαταΝαξαηες¨©    δεπςεγατεδΤιπ¨ΆΓΓΑςνατυςεΔαταΝαξαηεςΊσθαςεδΑςνατυςεΔαταΝαξαηεςΆ¬Άγγσ®ΑςνατυςεΔαταΝαξαηεςΊηετΙξσταξγεΆ©    ςετυςξ γγσ®ΑςνατυςεΔαταΝαξαηεςΊηετΙξσταξγε¨©εξδΓΓΑςνατυςεΔαταΝαξαηες®σθαςεδΑςνατυςεΔαταΝαξαηες ½ ΓΓΑςνατυςεΔαταΝαξαηεςΔεπςεγατεδ®σθαςεδΑςνατυςεΔαταΝαξαηεςζυξγτιοξ ΓΓΑςνατυςεΔαταΝαξαηεςΔεπςεγατεδ®πυςηε¨©    δεπςεγατεδΤιπ¨ΆΓΓΑςνατυςεΔαταΝαξαηεςΊπυςηεΆ¬Άγγσ®ΑςνατυςεΔαταΝαξαηεςΊδεστοςωΙξσταξγεΆ©    ςετυςξ γγσ®ΑςνατυςεΔαταΝαξαηεςΊδεστοςωΙξσταξγε¨© εξδΓΓΑςνατυςεΔαταΝαξαηες®πυςηε ½ ΓΓΑςνατυςεΔαταΝαξαηεςΔεπςεγατεδ®πυςηε­­ζυξγτιοξσ οζ ΓΓΑςνατυςεΔαταΝαξαηες χιμμ βε δεπςεγατεδ εξδ
+if nil == ccs then
+    return
+end
+
+--tip
+local function deprecatedTip(old_name,new_name)
+    print("\n********** \n"..old_name.." was deprecated please use ".. new_name .. " instead.\n**********")
+end
+
+--functions of GUIReader will be deprecated begin
+local GUIReaderDeprecated = { }
+function GUIReaderDeprecated.shareReader()
+    deprecatedTip("GUIReader:shareReader","ccs.GUIReader:getInstance")
+    return ccs.GUIReader:getInstance()
+end
+GUIReader.shareReader = GUIReaderDeprecated.shareReader
+
+function GUIReaderDeprecated.purgeGUIReader()
+    deprecatedTip("GUIReader:purgeGUIReader","ccs.GUIReader:destroyInstance")
+    return ccs.GUIReader:destroyInstance()
+end
+GUIReader.purgeGUIReader = GUIReaderDeprecated.purgeGUIReader
+--functions of GUIReader will be deprecated end
+
+--functions of SceneReader will be deprecated begin
+local SceneReaderDeprecated = { }
+function SceneReaderDeprecated.sharedSceneReader()
+    deprecatedTip("SceneReader:sharedSceneReader","ccs.SceneReader:getInstance")
+    return ccs.SceneReader:getInstance()
+end
+SceneReader.sharedSceneReader = SceneReaderDeprecated.sharedSceneReader
+
+function SceneReaderDeprecated.purgeSceneReader(self)
+    deprecatedTip("SceneReader:purgeSceneReader","ccs.SceneReader:destroyInstance")
+    return self:destroyInstance()
+end
+SceneReader.purgeSceneReader = SceneReaderDeprecated.purgeSceneReader
+--functions of SceneReader will be deprecated end
+
+
+--functions of ccs.GUIReader will be deprecated begin
+local CCSGUIReaderDeprecated = { }
+function CCSGUIReaderDeprecated.purgeGUIReader()
+    deprecatedTip("ccs.GUIReader:purgeGUIReader","ccs.GUIReader:destroyInstance")
+    return ccs.GUIReader:destroyInstance()
+end
+ccs.GUIReader.purgeGUIReader = CCSGUIReaderDeprecated.purgeGUIReader
+--functions of ccs.GUIReader will be deprecated end
+
+--functions of ccs.ActionManagerEx will be deprecated begin
+local CCSActionManagerExDeprecated = { }
+function CCSActionManagerExDeprecated.destroyActionManager()
+    deprecatedTip("ccs.ActionManagerEx:destroyActionManager","ccs.ActionManagerEx:destroyInstance")
+    return ccs.ActionManagerEx:destroyInstance()
+end
+ccs.ActionManagerEx.destroyActionManager = CCSActionManagerExDeprecated.destroyActionManager
+--functions of ccs.ActionManagerEx will be deprecated end
+
+--functions of ccs.SceneReader will be deprecated begin
+local CCSSceneReaderDeprecated = { }
+function CCSSceneReaderDeprecated.destroySceneReader(self)
+    deprecatedTip("ccs.SceneReader:destroySceneReader","ccs.SceneReader:destroyInstance")
+    return self:destroyInstance()
+end
+ccs.SceneReader.destroySceneReader = CCSSceneReaderDeprecated.destroySceneReader
+--functions of ccs.SceneReader will be deprecated end
+
+--functions of CCArmatureDataManager will be deprecated begin
+local CCArmatureDataManagerDeprecated = { }
+function CCArmatureDataManagerDeprecated.sharedArmatureDataManager()
+    deprecatedTip("CCArmatureDataManager:sharedArmatureDataManager","ccs.ArmatureDataManager:getInstance")
+    return ccs.ArmatureDataManager:getInstance()
+end
+CCArmatureDataManager.sharedArmatureDataManager = CCArmatureDataManagerDeprecated.sharedArmatureDataManager
+
+function CCArmatureDataManagerDeprecated.purge()
+    deprecatedTip("CCArmatureDataManager:purge","ccs.ArmatureDataManager:destoryInstance")
+    return ccs.ArmatureDataManager:destoryInstance() 
+end
+CCArmatureDataManager.purge = CCArmatureDataManagerDeprecated.purge
+--functions of CCArmatureDataManager will be deprecated end

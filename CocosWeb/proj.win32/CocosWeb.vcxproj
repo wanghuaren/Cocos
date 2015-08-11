@@ -67,7 +67,7 @@
   <ItemDefinitionGroup Condition="'$(Configuration)|$(Platform)'=='Debug|Win32'">
     <ClCompile>
       <Optimization>Disabled</Optimization>
-      <AdditionalIncludeDirectories>$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\tools\simulator\libsimulator\lib\protobuf-lite;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\tools\simulator\libsimulator\lib;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\external\lua\tolua;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\external\lua\luajit\include;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\cocos\scripting\lua-bindings\auto;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\cocos\scripting\lua-bindings\manual;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\cocos\audio\include;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\external;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\external\chipmunk\include\chipmunk;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\external\win32-specific\icon\include;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\extensions;..\Classes;$(ProjectDir)\include;..;%(AdditionalIncludeDirectories);$(_COCOS_HEADER_WIN32_BEGIN);$(_COCOS_HEADER_WIN32_END)</AdditionalIncludeDirectories>
+      <AdditionalIncludeDirectories>$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\tools\simulator\libsimulator\lib\protobuf-lite;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\tools\simulator\libsimulator\lib;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\external\lua\tolua;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\external\lua\luajit\include;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\cocos\scripting\lua-bindings\auto;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\cocos\scripting\lua-bindings\manual;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\cocos\audio\include;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\external;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\external\chipmunk\include\chipmunk;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\external\win32-specific\icon\include;$(COCOS_FRAMEWORKS)\cocos2d-x-3.6\extensions;..\Classes;..;%(AdditionalIncludeDirectories);$(_COCOS_HEADER_WIN32_BEGIN);$(_COCOS_HEADER_WIN32_END)</AdditionalIncludeDirectories>
       <PreprocessorDefinitions>WIN32;_WINDOWS;_USE_MATH_DEFINES;GL_GLEXT_PROTOTYPES;CC_ENABLE_CHIPMUNK_INTEGRATION=1;COCOS2D_DEBUG=1;_CRT_SECURE_NO_WARNINGS;_SCL_SECURE_NO_WARNINGS;%(PreprocessorDefinitions)</PreprocessorDefinitions>
       <MinimalRebuild>false</MinimalRebuild>
       <BasicRuntimeChecks>EnableFastChecks</BasicRuntimeChecks>
@@ -83,7 +83,7 @@
     <Link>
       <AdditionalDependencies>lua51.lib;%(AdditionalDependencies);$(_COCOS_LIB_WIN32_BEGIN);$(_COCOS_LIB_WIN32_END);libiconv.lib;libcurl_imp.lib;websockets.lib</AdditionalDependencies>
       <OutputFile>$(OutDir)$(ProjectName).exe</OutputFile>
-      <AdditionalLibraryDirectories>$(ProjectDir)\lib;$(OutDir);%(AdditionalLibraryDirectories);$(_COCOS_LIB_PATH_WIN32_BEGIN);$(_COCOS_LIB_PATH_WIN32_END)</AdditionalLibraryDirectories>
+      <AdditionalLibraryDirectories>$(OutDir);%(AdditionalLibraryDirectories);$(_COCOS_LIB_PATH_WIN32_BEGIN);$(_COCOS_LIB_PATH_WIN32_END)</AdditionalLibraryDirectories>
       <GenerateDebugInformation>true</GenerateDebugInformation>
       <SubSystem>Windows</SubSystem>
       <TargetMachine>MachineX86</TargetMachine>

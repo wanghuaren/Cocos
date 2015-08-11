@@ -1,1 +1,80 @@
-­­ΫΫΓοπωςιηθτ ¨γ© ²°±±­²°±΄ γθυλοξη­ιξγ®γονΠεςνισσιοξ ισ θεςεβω ηςαξτεδ¬ ζςεε οζ γθαςηε¬ το αξω πεςσοξ οβταιξιξη α γοπωοζ τθισ σοζτχαςε αξδ ασσογιατεδ δογυνεξτατιοξ ζιμεσ ¨τθε ΆΣοζτχαςεΆ©¬ το δεαμιξ τθε Σοζτχαςε χιτθουτ ςεστςιγτιοξ¬ ιξγμυδιξη χιτθουτ μινιτατιοξ τθε ςιηθτστο υσε¬ γοπω¬ νοδιζω¬ νεςηε¬ πυβμισθ¬ διστςιβυτε¬ συβμιγεξσε¬ αξδ―ος σεμμγοπιεσ οζ τθε Σοζτχαςε¬ αξδ το πεςνιτ πεςσοξσ το χθον τθε Σοζτχαςε ισζυςξισθεδ το δο σο¬ συβκεγτ το τθε ζομμοχιξη γοξδιτιοξσΊΤθε αβοφε γοπωςιηθτ ξοτιγε αξδ τθισ πεςνισσιοξ ξοτιγε σθαμμ βε ιξγμυδεδ ιξαμμ γοπιεσ ος συβσταξτιαμ ποςτιοξσ οζ τθε Σοζτχαςε®ΤΘΕ ΣΟΖΤΧΑÒΕ ΙΣ ΠÒΟΦΙΔΕΔ ΆΑΣ ΙΣΆ¬ ΧΙΤΘΟΥΤ ΧΑÒÒΑΞΤΩ ΟΖ ΑΞΩ ΛΙΞΔ¬ ΕΨΠÒΕΣΣ ΟÒΙΝΠΜΙΕΔ¬ ΙΞΓΜΥΔΙΞΗ ΒΥΤ ΞΟΤ ΜΙΝΙΤΕΔ ΤΟ ΤΘΕ ΧΑÒÒΑΞΤΙΕΣ ΟΖ ΝΕÒΓΘΑΞΤΑΒΙΜΙΤΩ¬ΖΙΤΞΕΣΣ ΖΟÒ Α ΠΑÒΤΙΓΥΜΑÒ ΠΥÒΠΟΣΕ ΑΞΔ ΞΟΞΙΞΖÒΙΞΗΕΝΕΞΤ® ΙΞ ΞΟ ΕΦΕΞΤ ΣΘΑΜΜ ΤΘΕΑΥΤΘΟÒΣ ΟÒ ΓΟΠΩÒΙΗΘΤ ΘΟΜΔΕÒΣ ΒΕ ΜΙΑΒΜΕ ΖΟÒ ΑΞΩ ΓΜΑΙΝ¬ ΔΑΝΑΗΕΣ ΟÒ ΟΤΘΕÒΜΙΑΒΙΜΙΤΩ¬ ΧΘΕΤΘΕÒ ΙΞ ΑΞ ΑΓΤΙΟΞ ΟΖ ΓΟΞΤÒΑΓΤ¬ ΤΟÒΤ ΟÒ ΟΤΘΕÒΧΙΣΕ¬ ΑÒΙΣΙΞΗ ΖÒΟΝ¬ΟΥΤ ΟΖ ΟÒ ΙΞ ΓΟΞΞΕΓΤΙΟΞ ΧΙΤΘ ΤΘΕ ΣΟΖΤΧΑÒΕ ΟÒ ΤΘΕ ΥΣΕ ΟÒ ΟΤΘΕÒ ΔΕΑΜΙΞΗΣ ΙΞΤΘΕ ΣΟΖΤΧΑÒΕ®έέμογαμ Μαωες ½ γγ®Μαωεςζυξγτιοξ ΜαωεςΊοξΤουγθ¨γαμμβαγλ¬ ισΝυμτιΤουγθεσ¬ σχαμμοχΤουγθεσ©    ιζ τωπε¨ισΝυμτιΤουγθεσ© ώ½ ΆβοομεαξΆ τθεξ ισΝυμτιΤουγθεσ ½ ζαμσε εξδ    ιζ τωπε¨σχαμμοχΤουγθεσ© ώ½ ΆβοομεαξΆ τθεξ σχαμμοχΤουγθεσ ½ ζαμσε εξδ    σεμζΊςεηιστεςΣγςιπτΤουγθΘαξδμες¨ζυξγτιοξ¨στατε¬ ®®®©        μογαμ αςησ ½ ϋ®®®ύ        μογαμ εφεξτ ½ ϋξανε ½ στατεύ        ιζ ισΝυμτιΤουγθεσ τθεξ            αςησ ½ αςησΫ±έ            μογαμ ποιξτσ ½ ϋύ            ζος ι ½ ±¬ £αςησ¬ ³ δο                μογαμ ψ¬ ω¬ ιδ ½ αςησΫιέ¬ αςησΫι « ±έ¬ αςησΫι « ²έ                ποιξτσΫιδέ ½ ϋψ ½ ψ¬ ω ½ ω¬ ιδ ½ ιδύ            εξδ            εφεξτ®ποιξτσ ½ ποιξτσ        εμσε            εφεξτ®ψ ½ αςησΫ±έ            εφεξτ®ω ½ αςησΫ²έ        εξδ        γαμμβαγλ¨εφεξτ©    εξδ¬ ισΝυμτιΤουγθεσ¬ °¬ σχαμμοχΤουγθεσ©    σεμζΊσετΤουγθΕξαβμεδ¨τςυε©    ςετυςξ σεμζεξδζυξγτιοξ ΜαωεςΊςενοφεΤουγθ¨©    σεμζΊυξςεηιστεςΣγςιπτΤουγθΘαξδμες¨©    σεμζΊσετΤουγθΕξαβμεδ¨ζαμσε©    ςετυςξ σεμζεξδζυξγτιοξ ΜαωεςΊοξΛεωπαδ¨γαμμβαγλ©    σεμζΊςεηιστεςΣγςιπτΛεωπαδΘαξδμες¨γαμμβαγλ©    σεμζΊσετΛεωβοαςδΕξαβμεδ¨τςυε©    ςετυςξ σεμζεξδζυξγτιοξ ΜαωεςΊςενοφεΛεωπαδ¨©    σεμζΊυξςεηιστεςΣγςιπτΛεωπαδΘαξδμες¨©    σεμζΊσετΛεωβοαςδΕξαβμεδ¨ζαμσε©    ςετυςξ σεμζεξδζυξγτιοξ ΜαωεςΊοξΑγγεμεςατε¨γαμμβαγλ©    σεμζΊςεηιστεςΣγςιπτΑγγεμεςατεΘαξδμες¨γαμμβαγλ©    σεμζΊσετΑγγεμεςονετεςΕξαβμεδ¨τςυε©    ςετυςξ σεμζεξδζυξγτιοξ ΜαωεςΊςενοφεΑγγεμεςατε¨©    σεμζΊυξςεηιστεςΣγςιπτΑγγεμεςατεΘαξδμες¨©    σεμζΊσετΑγγεμεςονετεςΕξαβμεδ¨ζαμσε©    ςετυςξ σεμζεξδ
+--[[
+
+Copyright (c) 2011-2014 chukong-inc.com
+
+Permission is hereby granted, free of charge, to any person obtaining a copy
+of this software and associated documentation files (the "Software"), to deal
+in the Software without restriction, including without limitation the rights
+to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
+copies of the Software, and to permit persons to whom the Software is
+furnished to do so, subject to the following conditions:
+
+The above copyright notice and this permission notice shall be included in
+all copies or substantial portions of the Software.
+
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR
+IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY,
+FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE
+AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER
+LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
+OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN
+THE SOFTWARE.
+
+]]
+
+local Layer = cc.Layer
+
+function Layer:onTouch(callback, isMultiTouches, swallowTouches)
+    if type(isMultiTouches) ~= "boolean" then isMultiTouches = false end
+    if type(swallowTouches) ~= "boolean" then swallowTouches = false end
+
+    self:registerScriptTouchHandler(function(state, ...)
+        local args = {...}
+        local event = {name = state}
+        if isMultiTouches then
+            args = args[1]
+            local points = {}
+            for i = 1, #args, 3 do
+                local x, y, id = args[i], args[i + 1], args[i + 2]
+                points[id] = {x = x, y = y, id = id}
+            end
+            event.points = points
+        else
+            event.x = args[1]
+            event.y = args[2]
+        end
+        callback(event)
+    end, isMultiTouches, 0, swallowTouches)
+    self:setTouchEnabled(true)
+    return self
+end
+
+function Layer:removeTouch()
+    self:unregisterScriptTouchHandler()
+    self:setTouchEnabled(false)
+    return self
+end
+
+function Layer:onKeypad(callback)
+    self:registerScriptKeypadHandler(callback)
+    self:setKeyboardEnabled(true)
+    return self
+end
+
+function Layer:removeKeypad()
+    self:unregisterScriptKeypadHandler()
+    self:setKeyboardEnabled(false)
+    return self
+end
+
+function Layer:onAccelerate(callback)
+    self:registerScriptAccelerateHandler(callback)
+    self:setAccelerometerEnabled(true)
+    return self
+end
+
+function Layer:removeAccelerate()
+    self:unregisterScriptAccelerateHandler()
+    self:setAccelerometerEnabled(false)
+    return self
+end

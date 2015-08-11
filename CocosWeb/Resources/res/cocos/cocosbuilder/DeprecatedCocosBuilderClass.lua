@@ -1,1 +1,35 @@
-ιζ ξιμ ½½ γγ®ΓΓΒΠςοψω τθεξ‰ςετυςξεξδ­­ Τθισ ισ τθε ΔεπςεγατεδΓογοσΒυιμδεςΓμασσΔεπςεγατεδΓογοσΒυιμδεςΓμασσ ½ ϋύ ος ΔεπςεγατεδΓογοσΒυιμδεςΓμασσ­­τιπμογαμ ζυξγτιοξ δεπςεγατεδΤιπ¨ομδίξανε¬ξεχίξανε©    πςιξτ¨Άάξªªªªªªªªªª άξΆ®®ομδίξανε®®Ά χασ δεπςεγατεδ πμεασε υσε Ά®® ξεχίξανε ®® Ά ιξστεαδ®άξªªªªªªªªªªΆ©εξδ­­ΓΓΒÒεαδες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΓογοσΒυιμδεςΓμασσ®ΓΓΒÒεαδες¨©    δεπςεγατεδΤιπ¨ΆΓΓΒÒεαδεςΆ¬Άγγ®ΒÒεαδεςΆ©    ςετυςξ γγ®ΒÒεαδεςεξδίΗΫΆΓΓΒÒεαδεςΆέ ½ ΔεπςεγατεδΓογοσΒυιμδεςΓμασσ®ΓΓΒÒεαδες¨©­­ΓΓΒÒεαδες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΒΑξινατιοξΝαξαηες γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΓογοσΒυιμδεςΓμασσ®ΓΓΒΑξινατιοξΝαξαηες¨©    δεπςεγατεδΤιπ¨ΆΓΓΒΑξινατιοξΝαξαηεςΆ¬Άγγ®ΒΑξινατιοξΝαξαηεςΆ©    ςετυςξ γγ®ΒΑξινατιοξΝαξαηεςεξδίΗΫΆΓΓΒΑξινατιοξΝαξαηεςΆέ ½ ΔεπςεγατεδΓογοσΒυιμδεςΓμασσ®ΓΓΒΑξινατιοξΝαξαηες¨©­­ΓΓΒΑξινατιοξΝαξαηες γμασσ χιμμ βε Δεπςεγατεδ¬εξδ­­ΓΓΒΠςοψω γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΓογοσΒυιμδεςΓμασσ®ΓΓΒΠςοψω¨©    δεπςεγατεδΤιπ¨ΆΓΓΒΠςοψωΆ¬Άγγ®ΓΓΒΠςοψωΆ©    ςετυςξ γγ®ΓΓΒΠςοψωεξδίΗΫΆΓΓΒΠςοψωΆέ ½ ΔεπςεγατεδΓογοσΒυιμδεςΓμασσ®ΓΓΒΠςοψω¨©­­ΓΓΒΠςοψω γμασσ χιμμ βε Δεπςεγατεδ¬εξδ
+if nil == cc.CCBProxy then
+	return
+end
+-- This is the DeprecatedCocosBuilderClass
+
+DeprecatedCocosBuilderClass = {} or DeprecatedCocosBuilderClass
+
+--tip
+local function deprecatedTip(old_name,new_name)
+    print("\n********** \n"..old_name.." was deprecated please use ".. new_name .. " instead.\n**********")
+end
+
+--CCBReader class will be Deprecated,begin
+function DeprecatedCocosBuilderClass.CCBReader()
+    deprecatedTip("CCBReader","cc.BReader")
+    return cc.BReader
+end
+_G["CCBReader"] = DeprecatedCocosBuilderClass.CCBReader()
+--CCBReader class will be Deprecated,end
+
+--CCBAnimationManager class will be Deprecated,begin
+function DeprecatedCocosBuilderClass.CCBAnimationManager()
+    deprecatedTip("CCBAnimationManager","cc.BAnimationManager")
+    return cc.BAnimationManager
+end
+_G["CCBAnimationManager"] = DeprecatedCocosBuilderClass.CCBAnimationManager()
+--CCBAnimationManager class will be Deprecated,end
+
+--CCBProxy class will be Deprecated,begin
+function DeprecatedCocosBuilderClass.CCBProxy()
+    deprecatedTip("CCBProxy","cc.CCBProxy")
+    return cc.CCBProxy
+end
+_G["CCBProxy"] = DeprecatedCocosBuilderClass.CCBProxy()
+--CCBProxy class will be Deprecated,end

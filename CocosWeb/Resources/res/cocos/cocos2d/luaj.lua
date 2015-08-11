@@ -1,1 +1,34 @@
-μογαμ μυακ ½ ϋύμογαμ γαμμΚαφαΣτατιγΝετθοδ ½ ΜυαΚαφαΒςιδηε®γαμμΣτατιγΝετθοδμογαμ ζυξγτιοξ γθεγλΑςηυνεξτσ¨αςησ¬ σιη©    ιζ τωπε¨αςησ© ώ½ ΆταβμεΆ τθεξ αςησ ½ ϋύ εξδ    ιζ σιη τθεξ ςετυςξ αςησ¬ σιη εξδ    σιη ½ ϋΆ¨Άύ    ζος ι¬ φ ιξ ιπαιςσ¨αςησ© δο        μογαμ τ ½ τωπε¨φ©        ιζ τ ½½ ΆξυνβεςΆ τθεξ            σιηΫ£σιη « ±έ ½ ΆΖΆ        εμσειζ τ ½½ ΆβοομεαξΆ τθεξ            σιηΫ£σιη « ±έ ½ ΆΪΆ        εμσειζ τ ½½ ΆζυξγτιοξΆ τθεξ            σιηΫ£σιη « ±έ ½ ΆΙΆ        εμσε            σιηΫ£σιη « ±έ ½ ΆΜκαφα―μαξη―Στςιξη»Ά        εξδ    εξδ    σιηΫ£σιη « ±έ ½ Ά©ΦΆ    ςετυςξ αςησ¬ ταβμε®γοξγατ¨σιη©εξδζυξγτιοξ μυακ®γαμμΣτατιγΝετθοδ¨γμασσΞανε¬ νετθοδΞανε¬ αςησ¬ σιη©    μογαμ αςησ¬ σιη ½ γθεγλΑςηυνεξτσ¨αςησ¬ σιη©    ­­εγθοΙξζο¨Άμυακ®γαμμΣτατιγΝετθοδ¨άΆ¥σάΆ¬άξάτάΆ¥σάΆ¬άξάταςησ¬άξάτάΆ¥σάΆΆ¬ γμασσΞανε¬ νετθοδΞανε¬ σιη©    ςετυςξ γαμμΚαφαΣτατιγΝετθοδ¨γμασσΞανε¬ νετθοδΞανε¬ αςησ¬ σιη©εξδςετυςξ μυακ
+
+local luaj = {}
+
+local callJavaStaticMethod = LuaJavaBridge.callStaticMethod
+
+local function checkArguments(args, sig)
+    if type(args) ~= "table" then args = {} end
+    if sig then return args, sig end
+
+    sig = {"("}
+    for i, v in ipairs(args) do
+        local t = type(v)
+        if t == "number" then
+            sig[#sig + 1] = "F"
+        elseif t == "boolean" then
+            sig[#sig + 1] = "Z"
+        elseif t == "function" then
+            sig[#sig + 1] = "I"
+        else
+            sig[#sig + 1] = "Ljava/lang/String;"
+        end
+    end
+    sig[#sig + 1] = ")V"
+
+    return args, table.concat(sig)
+end
+
+function luaj.callStaticMethod(className, methodName, args, sig)
+    local args, sig = checkArguments(args, sig)
+    --echoInfo("luaj.callStaticMethod(\"%s\",\n\t\"%s\",\n\targs,\n\t\"%s\"", className, methodName, sig)
+    return callJavaStaticMethod(className, methodName, args, sig)
+end
+
+return luaj

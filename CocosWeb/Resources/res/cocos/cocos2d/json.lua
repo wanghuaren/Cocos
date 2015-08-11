@@ -1,1 +1,376 @@
-­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ ΚΣΟΞ΄ΜυαΊ ΚΣΟΞ εξγοδιξη ― δεγοδιξη συπποςτ ζος τθε Μυα μαξηυαηε®­­ κσοξ Νοδυμε®­­ ΑυτθοςΊ Γςαιη Νασοξ­Κοξεσ­­ ΘονεπαηεΊ θττπΊ――κσοξ®μυαζοςηε®ξετ―­­ ΦεςσιοξΊ °®Ή®΄°­­ Τθισ νοδυμε ισ ςεμεασεδ υξδες τθε ΝΙΤ Μιγεξσε ¨ΝΙΤ©®­­ Πμεασε σεε ΜΙΓΕΞΓΕ®τψτ ζος δεταιμσ®­­­­ ΥΣΑΗΕΊ­­ Τθισ νοδυμε εψποσεσ τχο ζυξγτιοξσΊ­­   εξγοδε¨ο©­­     Òετυςξσ τθε ταβμε ― στςιξη ― βοομεαξ ― ξυνβες ― ξιμ ― κσοξ®ξυμμ φαμυε ασ α ΚΣΟΞ­εξγοδεδ στςιξη®­­   δεγοδε¨κσοξίστςιξη©­­     Òετυςξσ α Μυα οβκεγτ ποπυματεδ χιτθ τθε δατα εξγοδεδ ιξ τθε ΚΣΟΞ στςιξη κσοξίστςιξη®­­­­ ÒΕΡΥΙÒΕΝΕΞΤΣΊ­­   γονπατ­µ®± ιζ υσιξη Μυα µ®°­­­­ ΓΘΑΞΗΕΜΟΗ­­   °®Ή®²° Ιξτςοδυγτιοξ οζ μογαμ Μυα ζυξγτιοξσ ζος πςιφατε ζυξγτιοξσ ¨ςενοφεδ ί ζυξγτιοξ πςεζιψ©®­­          Ζιψεδ Μυα µ®± γονπατιβιμιτω ισσυεσ®­­   ‰‰Ιξτςοδυγεδ κσοξ®ξυμμ το θαφε ξυμμ φαμυεσ ιξ ασσογιατιφε αςςαωσ®­­          εξγοδε¨© πεςζοςναξγε ινπςοφενεξτ ¨νοςε τθαξ µ°¥© τθςουηθ ταβμε®γοξγατ ςατθες τθαξ ®®­­          Ιξτςοδυγεδ δεγοδε αβιμιτω το ιηξοςε ―ªª― γοννεξτσ ιξ τθε ΚΣΟΞ στςιξη®­­   °®Ή®±° Ζιψ το αςςαω εξγοδιξη ― δεγοδιξη το γοςςεγτμω ναξαηε ξιμ―ξυμμ φαμυεσ ιξ αςςαωσ®­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ Ινποςτσ αξδ δεπεξδεξγιεσ­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­μογαμ νατθ ½ ςερυιςε¨§νατθ§©μογαμ στςιξη ½ ςερυιςε¨ΆστςιξηΆ©μογαμ ταβμε ½ ςερυιςε¨ΆταβμεΆ©μογαμ βασε ½ ίΗ­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ Νοδυμε δεγμαςατιοξ­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­νοδυμε¨ΆκσοξΆ©­­ Πυβμιγ ζυξγτιοξσ­­ Πςιφατε ζυξγτιοξσμογαμ δεγοδείσγαξΑςςαωμογαμ δεγοδείσγαξΓοννεξτμογαμ δεγοδείσγαξΓοξσταξτμογαμ δεγοδείσγαξΞυνβεςμογαμ δεγοδείσγαξΟβκεγτμογαμ δεγοδείσγαξΣτςιξημογαμ δεγοδείσγαξΧθιτεσπαγεμογαμ εξγοδεΣτςιξημογαμ ισΑςςαωμογαμ ισΕξγοδαβμε­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ ΠΥΒΜΙΓ ΖΥΞΓΤΙΟΞΣ­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ Εξγοδεσ αξ αςβιτςαςω Μυα οβκεγτ ― φαςιαβμε®­­ ΐπαςαν φ Τθε Μυα οβκεγτ ― φαςιαβμε το βε ΚΣΟΞ εξγοδεδ®­­ ΐςετυςξ Στςιξη γοξταιξιξη τθε ΚΣΟΞ εξγοδιξη ιξ ιξτεςξαμ Μυα στςιξη ζοςνατ ¨ι®ε® ξοτ υξιγοδε©ζυξγτιοξ εξγοδε ¨φ©  ­­ Θαξδμε ξιμ φαμυεσ  ιζ φ½½ξιμ τθεξ    ςετυςξ ΆξυμμΆ  εξδ  μογαμ φτωπε ½ βασε®τωπε¨φ©  ­­ Θαξδμε στςιξησ  ιζ φτωπε½½§στςιξη§ τθεξ    ςετυςξ §Ά§ ®® εξγοδεΣτςιξη¨φ© ®® §Ά§‰    ­­ Ξεεδ το θαξδμε εξγοδιξη ιξ στςιξη  εξδ  ­­ Θαξδμε βοομεαξσ  ιζ φτωπε½½§ξυνβες§ ος φτωπε½½§βοομεαξ§ τθεξ    ςετυςξ βασε®τοστςιξη¨φ©  εξδ  ­­ Θαξδμε ταβμεσ  ιζ φτωπε½½§ταβμε§ τθεξ    μογαμ ςφαμ ½ ϋύ    ­­ Γοξσιδες αςςαωσ σεπαςατεμω    μογαμ βΑςςαω¬ ναψΓουξτ ½ ισΑςςαω¨φ©    ιζ βΑςςαω τθεξ      ζος ι ½ ±¬ναψΓουξτ δο        ταβμε®ιξσεςτ¨ςφαμ¬ εξγοδε¨φΫιέ©©      εξδ    εμσε‰­­ Αξ οβκεγτ¬ ξοτ αξ αςςαω      ζος ι¬κ ιξ βασε®παιςσ¨φ© δο        ιζ ισΕξγοδαβμε¨ι© αξδ ισΕξγοδαβμε¨κ© τθεξ          ταβμε®ιξσεςτ¨ςφαμ¬ §Ά§ ®® εξγοδεΣτςιξη¨ι© ®® §ΆΊ§ ®® εξγοδε¨κ©©        εξδ      εξδ    εξδ    ιζ βΑςςαω τθεξ      ςετυςξ §Ϋ§ ®® ταβμε®γοξγατ¨ςφαμ¬§¬§© ®®§έ§    εμσε      ςετυςξ §ϋ§ ®® ταβμε®γοξγατ¨ςφαμ¬§¬§© ®® §ύ§    εξδ  εξδ  ­­ Θαξδμε ξυμμ φαμυεσ  ιζ φτωπε½½§ζυξγτιοξ§ αξδ φ½½ξυμμ τθεξ    ςετυςξ §ξυμμ§  εξδ  βασε®ασσεςτ¨ζαμσε¬§εξγοδε αττενπτ το εξγοδε υξσυπποςτεδ τωπε § ®® φτωπε ®® §Ί§ ®® βασε®τοστςιξη¨φ©©εξδ­­­ Δεγοδεσ α ΚΣΟΞ στςιξη αξδ ςετυςξσ τθε δεγοδεδ φαμυε ασ α Μυα δατα στςυγτυςε ― φαμυε®­­ ΐπαςαν σ Τθε στςιξη το σγαξ®­­ ΐπαςαν ΫσταςτΠοσέ Οπτιοξαμ σταςτιξη ποσιτιοξ χθεςε τθε ΚΣΟΞ στςιξη ισ μογατεδ® Δεζαυμτσ το ±®­­ ΐπαςαν Μυα οβκεγτ¬ ξυνβες Τθε οβκεγτ τθατ χασ σγαξξεδ¬ ασ α Μυα ταβμε ― στςιξη ― ξυνβες ― βοομεαξ ος ξιμ¬­­ αξδ τθε ποσιτιοξ οζ τθε ζιςστ γθαςαγτες αζτες­­ τθε σγαξξεδ ΚΣΟΞ οβκεγτ®ζυξγτιοξ δεγοδε¨σ¬ σταςτΠοσ©  σταςτΠοσ ½ σταςτΠοσ αξδ σταςτΠοσ ος ±  σταςτΠοσ ½ δεγοδείσγαξΧθιτεσπαγε¨σ¬σταςτΠοσ©  βασε®ασσεςτ¨σταςτΠοσΌ½στςιξη®μεξ¨σ©¬ §Υξτεςνιξατεδ ΚΣΟΞ εξγοδεδ οβκεγτ ζουξδ ατ ποσιτιοξ ιξ Ϋ§ ®® σ ®® §έ§©  μογαμ γυςΓθας ½ στςιξη®συβ¨σ¬σταςτΠοσ¬σταςτΠοσ©  ­­ Οβκεγτ  ιζ γυςΓθας½½§ϋ§ τθεξ    ςετυςξ δεγοδείσγαξΟβκεγτ¨σ¬σταςτΠοσ©  εξδ  ­­ Αςςαω  ιζ γυςΓθας½½§Ϋ§ τθεξ    ςετυςξ δεγοδείσγαξΑςςαω¨σ¬σταςτΠοσ©  εξδ  ­­ Ξυνβες  ιζ στςιξη®ζιξδ¨Ά«­°±²³΄µ¶·ΈΉ®εΆ¬ γυςΓθας¬ ±¬ τςυε© τθεξ    ςετυςξ δεγοδείσγαξΞυνβες¨σ¬σταςτΠοσ©  εξδ  ­­ Στςιξη  ιζ γυςΓθας½½ΫΫΆέέ ος γυςΓθας½½ΫΫ§έέ τθεξ    ςετυςξ δεγοδείσγαξΣτςιξη¨σ¬σταςτΠοσ©  εξδ  ιζ στςιξη®συβ¨σ¬σταςτΠοσ¬σταςτΠοσ«±©½½§―ª§ τθεξ    ςετυςξ δεγοδε¨σ¬ δεγοδείσγαξΓοννεξτ¨σ¬σταςτΠοσ©©  εξδ  ­­ Οτθεςχισε¬ ιτ νυστ βε α γοξσταξτ  ςετυςξ δεγοδείσγαξΓοξσταξτ¨σ¬σταςτΠοσ©εξδ­­­ Τθε ξυμμ ζυξγτιοξ αμμοχσ οξε το σπεγιζω α ξυμμ φαμυε ιξ αξ ασσογιατιφε αςςαω ¨χθιγθ ισ οτθεςχισε­­ δισγαςδεδ ιζ ωου σετ τθε φαμυε χιτθ §ξιμ§ ιξ Μυα® Σινπμω σετ τ ½ ϋ ζιςστ½κσοξ®ξυμμ ύζυξγτιοξ ξυμμ¨©  ςετυςξ ξυμμ ­­ σο κσοξ®ξυμμ¨© χιμμ αμσο ςετυςξ ξυμμ »­©εξδ­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ Ιξτεςξαμ¬ ΠÒΙΦΑΤΕ ζυξγτιοξσ®­­ Ζομμοχιξη α Πωτθοξ­μιλε γοξφεξτιοξ¬ Ι θαφε πςεζιψεδ αμμ τθεσε §ΠÒΙΦΑΤΕ§­­ ζυξγτιοξσ χιτθ αξ υξδεςσγοςε®­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­­ Σγαξσ αξ αςςαω ζςον ΚΣΟΞ ιξτο α Μυα οβκεγτ­­ σταςτΠοσ βεηιξσ ατ τθε σταςτ οζ τθε αςςαω®­­ Òετυςξσ τθε αςςαω αξδ τθε ξεψτ σταςτιξη ποσιτιοξ­­ ΐπαςαν σ Τθε στςιξη βειξη σγαξξεδ®­­ ΐπαςαν σταςτΠοσ Τθε σταςτιξη ποσιτιοξ ζος τθε σγαξ®­­ ΐςετυςξ ταβμε¬ ιξτ Τθε σγαξξεδ αςςαω ασ α ταβμε¬ αξδ τθε ποσιτιοξ οζ τθε ξεψτ γθαςαγτες το σγαξ®ζυξγτιοξ δεγοδείσγαξΑςςαω¨σ¬σταςτΠοσ©  μογαμ αςςαω ½ ϋύ‰­­ Τθε ςετυςξ φαμυε  μογαμ στςιξηΜεξ ½ στςιξη®μεξ¨σ©  βασε®ασσεςτ¨στςιξη®συβ¨σ¬σταςτΠοσ¬σταςτΠοσ©½½§Ϋ§¬§δεγοδείσγαξΑςςαω γαμμεδ βυτ αςςαω δοεσ ξοτ σταςτ ατ ποσιτιοξ § ®® σταςτΠοσ ®® § ιξ στςιξηΊάξ§®®σ ©  σταςτΠοσ ½ σταςτΠοσ « ±  ­­ Ιξζιξιτε μοοπ ζος αςςαω εμενεξτσ  ςεπεατ    σταςτΠοσ ½ δεγοδείσγαξΧθιτεσπαγε¨σ¬σταςτΠοσ©    βασε®ασσεςτ¨σταςτΠοσΌ½στςιξηΜεξ¬§ΚΣΟΞ Στςιξη εξδεδ υξεψπεγτεδμω σγαξξιξη αςςαω®§©    μογαμ γυςΓθας ½ στςιξη®συβ¨σ¬σταςτΠοσ¬σταςτΠοσ©    ιζ ¨γυςΓθας½½§έ§© τθεξ      ςετυςξ αςςαω¬ σταςτΠοσ«±    εξδ    ιζ ¨γυςΓθας½½§¬§© τθεξ      σταςτΠοσ ½ δεγοδείσγαξΧθιτεσπαγε¨σ¬σταςτΠοσ«±©    εξδ    βασε®ασσεςτ¨σταςτΠοσΌ½στςιξηΜεξ¬ §ΚΣΟΞ Στςιξη εξδεδ υξεψπεγτεδμω σγαξξιξη αςςαω®§©    οβκεγτ¬ σταςτΠοσ ½ δεγοδε¨σ¬σταςτΠοσ©    ταβμε®ιξσεςτ¨αςςαω¬οβκεγτ©  υξτιμ ζαμσεεξδ­­­ Σγαξσ α γοννεξτ αξδ δισγαςδσ τθε γοννεξτ®­­ Òετυςξσ τθε ποσιτιοξ οζ τθε ξεψτ γθαςαγτες ζομμοχιξη τθε γοννεξτ®­­ ΐπαςαν στςιξη σ Τθε ΚΣΟΞ στςιξη το σγαξ®­­ ΐπαςαν ιξτ σταςτΠοσ Τθε σταςτιξη ποσιτιοξ οζ τθε γοννεξτζυξγτιοξ δεγοδείσγαξΓοννεξτ¨σ¬ σταςτΠοσ©  βασε®ασσεςτ¨ στςιξη®συβ¨σ¬σταςτΠοσ¬σταςτΠοσ«±©½½§―ª§¬ ΆδεγοδείσγαξΓοννεξτ γαμμεδ βυτ γοννεξτ δοεσ ξοτ σταςτ ατ ποσιτιοξ Ά ®® σταςτΠοσ©  μογαμ εξδΠοσ ½ στςιξη®ζιξδ¨σ¬§ª―§¬σταςτΠοσ«²©  βασε®ασσεςτ¨εξδΠοσώ½ξιμ¬ ΆΥξτεςνιξατεδ γοννεξτ ιξ στςιξη ατ Ά ®® σταςτΠοσ©  ςετυςξ εξδΠοσ«²εξδ­­­ Σγαξσ ζος ηιφεξ γοξσταξτσΊ τςυε¬ ζαμσε ος ξυμμ­­ Òετυςξσ τθε αππςοπςιατε Μυα τωπε¬ αξδ τθε ποσιτιοξ οζ τθε ξεψτ γθαςαγτες το ςεαδ®­­ ΐπαςαν σ Τθε στςιξη βειξη σγαξξεδ®­­ ΐπαςαν σταςτΠοσ Τθε ποσιτιοξ ιξ τθε στςιξη ατ χθιγθ το σταςτ σγαξξιξη®­­ ΐςετυςξ οβκεγτ¬ ιξτ Τθε οβκεγτ ¨τςυε¬ ζαμσε ος ξιμ© αξδ τθε ποσιτιοξ ατ χθιγθ τθε ξεψτ γθαςαγτες σθουμδ βε­­ σγαξξεδ®ζυξγτιοξ δεγοδείσγαξΓοξσταξτ¨σ¬ σταςτΠοσ©  μογαμ γοξστσ ½ ϋ ΫΆτςυεΆέ ½ τςυε¬ ΫΆζαμσεΆέ ½ ζαμσε¬ ΫΆξυμμΆέ ½ ξιμ ύ  μογαμ γοξστΞανεσ ½ ϋΆτςυεΆ¬ΆζαμσεΆ¬ΆξυμμΆύ  ζος ι¬λ ιξ βασε®παιςσ¨γοξστΞανεσ© δο    ­­πςιξτ ¨ΆΫΆ ®® στςιξη®συβ¨σ¬σταςτΠοσ¬ σταςτΠοσ « στςιξη®μεξ¨λ© ­±© ®®ΆέΆ¬ λ©    ιζ στςιξη®συβ¨σ¬σταςτΠοσ¬ σταςτΠοσ « στςιξη®μεξ¨λ© ­± ©½½λ τθεξ      ςετυςξ γοξστσΫλέ¬ σταςτΠοσ « στςιξη®μεξ¨λ©    εξδ  εξδ  βασε®ασσεςτ¨ξιμ¬ §Ζαιμεδ το σγαξ γοξσταξτ ζςον στςιξη § ®® σ ®® § ατ σταςτιξη ποσιτιοξ § ®® σταςτΠοσ©εξδ­­­ Σγαξσ α ξυνβες ζςον τθε ΚΣΟΞ εξγοδεδ στςιξη®­­ ¨ιξ ζαγτ¬ αμσο ισ αβμε το σγαξ ξυνεςιγ «­ ερξσ¬ χθιγθ ισ ξοτ­­ ιξ τθε ΚΣΟΞ σπεγ®©­­ Òετυςξσ τθε ξυνβες¬ αξδ τθε ποσιτιοξ οζ τθε ξεψτ γθαςαγτες­­ αζτες τθε ξυνβες®­­ ΐπαςαν σ Τθε στςιξη βειξη σγαξξεδ®­­ ΐπαςαν σταςτΠοσ Τθε ποσιτιοξ ατ χθιγθ το σταςτ σγαξξιξη®­­ ΐςετυςξ ξυνβες¬ ιξτ Τθε εψτςαγτεδ ξυνβες αξδ τθε ποσιτιοξ οζ τθε ξεψτ γθαςαγτες το σγαξ®ζυξγτιοξ δεγοδείσγαξΞυνβες¨σ¬σταςτΠοσ©  μογαμ εξδΠοσ ½ σταςτΠοσ«±  μογαμ στςιξηΜεξ ½ στςιξη®μεξ¨σ©  μογαμ αγγεπταβμεΓθαςσ ½ Ά«­°±²³΄µ¶·ΈΉ®εΆ  χθιμε ¨στςιξη®ζιξδ¨αγγεπταβμεΓθαςσ¬ στςιξη®συβ¨σ¬εξδΠοσ¬εξδΠοσ©¬ ±¬ τςυε©‰αξδ εξδΠοσΌ½στςιξηΜεξ‰© δο    εξδΠοσ ½ εξδΠοσ « ±  εξδ  μογαμ στςιξηΦαμυε ½ §ςετυςξ § ®® στςιξη®συβ¨σ¬σταςτΠοσ¬ εξδΠοσ­±©  μογαμ στςιξηΕφαμ ½ βασε®μοαδστςιξη¨στςιξηΦαμυε©  βασε®ασσεςτ¨στςιξηΕφαμ¬ §Ζαιμεδ το σγαξ ξυνβες Ϋ § ®® στςιξηΦαμυε ®® §έ ιξ ΚΣΟΞ στςιξη ατ ποσιτιοξ § ®® σταςτΠοσ ®® § Ί § ®® εξδΠοσ©  ςετυςξ στςιξηΕφαμ¨©¬ εξδΠοσεξδ­­­ Σγαξσ α ΚΣΟΞ οβκεγτ ιξτο α Μυα οβκεγτ®­­ σταςτΠοσ βεηιξσ ατ τθε σταςτ οζ τθε οβκεγτ®­­ Òετυςξσ τθε οβκεγτ αξδ τθε ξεψτ σταςτιξη ποσιτιοξ®­­ ΐπαςαν σ Τθε στςιξη βειξη σγαξξεδ®­­ ΐπαςαν σταςτΠοσ Τθε σταςτιξη ποσιτιοξ οζ τθε σγαξ®­­ ΐςετυςξ ταβμε¬ ιξτ Τθε σγαξξεδ οβκεγτ ασ α ταβμε αξδ τθε ποσιτιοξ οζ τθε ξεψτ γθαςαγτες το σγαξ®ζυξγτιοξ δεγοδείσγαξΟβκεγτ¨σ¬σταςτΠοσ©  μογαμ οβκεγτ ½ ϋύ  μογαμ στςιξηΜεξ ½ στςιξη®μεξ¨σ©  μογαμ λεω¬ φαμυε  βασε®ασσεςτ¨στςιξη®συβ¨σ¬σταςτΠοσ¬σταςτΠοσ©½½§ϋ§¬§δεγοδείσγαξΟβκεγτ γαμμεδ βυτ οβκεγτ δοεσ ξοτ σταςτ ατ ποσιτιοξ § ®® σταςτΠοσ ®® § ιξ στςιξηΊάξ§ ®® σ©  σταςτΠοσ ½ σταςτΠοσ « ±  ςεπεατ    σταςτΠοσ ½ δεγοδείσγαξΧθιτεσπαγε¨σ¬σταςτΠοσ©    βασε®ασσεςτ¨σταςτΠοσΌ½στςιξηΜεξ¬ §ΚΣΟΞ στςιξη εξδεδ υξεψπεγτεδμω χθιμε σγαξξιξη οβκεγτ®§©    μογαμ γυςΓθας ½ στςιξη®συβ¨σ¬σταςτΠοσ¬σταςτΠοσ©    ιζ ¨γυςΓθας½½§ύ§© τθεξ      ςετυςξ οβκεγτ¬σταςτΠοσ«±    εξδ    ιζ ¨γυςΓθας½½§¬§© τθεξ      σταςτΠοσ ½ δεγοδείσγαξΧθιτεσπαγε¨σ¬σταςτΠοσ«±©    εξδ    βασε®ασσεςτ¨σταςτΠοσΌ½στςιξηΜεξ¬ §ΚΣΟΞ στςιξη εξδεδ υξεψπεγτεδμω σγαξξιξη οβκεγτ®§©    ­­ Σγαξ τθε λεω    λεω¬ σταςτΠοσ ½ δεγοδε¨σ¬σταςτΠοσ©    βασε®ασσεςτ¨σταςτΠοσΌ½στςιξηΜεξ¬ §ΚΣΟΞ στςιξη εξδεδ υξεψπεγτεδμω σεαςγθιξη ζος φαμυε οζ λεω § ®® λεω©    σταςτΠοσ ½ δεγοδείσγαξΧθιτεσπαγε¨σ¬σταςτΠοσ©    βασε®ασσεςτ¨σταςτΠοσΌ½στςιξηΜεξ¬ §ΚΣΟΞ στςιξη εξδεδ υξεψπεγτεδμω σεαςγθιξη ζος φαμυε οζ λεω § ®® λεω©    βασε®ασσεςτ¨στςιξη®συβ¨σ¬σταςτΠοσ¬σταςτΠοσ©½½§Ί§¬§ΚΣΟΞ οβκεγτ λεω­φαμυε ασσιηξνεξτ ναμ­ζοςνεδ ατ § ®® σταςτΠοσ©    σταςτΠοσ ½ δεγοδείσγαξΧθιτεσπαγε¨σ¬σταςτΠοσ«±©    βασε®ασσεςτ¨σταςτΠοσΌ½στςιξηΜεξ¬ §ΚΣΟΞ στςιξη εξδεδ υξεψπεγτεδμω σεαςγθιξη ζος φαμυε οζ λεω § ®® λεω©    φαμυε¬ σταςτΠοσ ½ δεγοδε¨σ¬σταςτΠοσ©    οβκεγτΫλεωέ½φαμυε  υξτιμ ζαμσε‰­­ ιξζιξιτε μοοπ χθιμε λεω­φαμυε παιςσ αςε ζουξδεξδ­­­ Σγαξσ α ΚΣΟΞ στςιξη ζςον τθε οπεξιξη ιξφεςτεδ γοννα ος σιξημε ρυοτε το τθε­­ εξδ οζ τθε στςιξη®­­ Òετυςξσ τθε στςιξη εψτςαγτεδ ασ α Μυα στςιξη¬­­ αξδ τθε ποσιτιοξ οζ τθε ξεψτ ξοξ­στςιξη γθαςαγτες­­ ¨αζτες τθε γμοσιξη ιξφεςτεδ γοννα ος σιξημε ρυοτε©®­­ ΐπαςαν σ Τθε στςιξη βειξη σγαξξεδ®­­ ΐπαςαν σταςτΠοσ Τθε σταςτιξη ποσιτιοξ οζ τθε σγαξ®­­ ΐςετυςξ στςιξη¬ ιξτ Τθε εψτςαγτεδ στςιξη ασ α Μυα στςιξη¬ αξδ τθε ξεψτ γθαςαγτες το παςσε®ζυξγτιοξ δεγοδείσγαξΣτςιξη¨σ¬σταςτΠοσ©  βασε®ασσεςτ¨σταςτΠοσ¬ §δεγοδείσγαξΣτςιξη¨®®© γαμμεδ χιτθουτ σταςτ ποσιτιοξ§©  μογαμ σταςτΓθας ½ στςιξη®συβ¨σ¬σταςτΠοσ¬σταςτΠοσ©  βασε®ασσεςτ¨σταςτΓθας½½ΫΫ§έέ ος σταςτΓθας½½ΫΫΆέέ¬§δεγοδείσγαξΣτςιξη γαμμεδ ζος α ξοξ­στςιξη§©  μογαμ εσγαπεδ ½ ζαμσε  μογαμ εξδΠοσ ½ σταςτΠοσ « ±  μογαμ βΕξδεδ ½ ζαμσε  μογαμ στςιξηΜεξ ½ στςιξη®μεξ¨σ©  ςεπεατ    μογαμ γυςΓθας ½ στςιξη®συβ¨σ¬εξδΠοσ¬εξδΠοσ©    ιζ ξοτ εσγαπεδ τθεξ      ιζ γυςΓθας½½ΫΫάέέ τθεξ        εσγαπεδ ½ τςυε      εμσε        βΕξδεδ ½ γυςΓθας½½σταςτΓθας      εξδ    εμσε      ­­ Ιζ χε§ςε εσγαπεδ¬ χε αγγεπτ τθε γυςςεξτ γθαςαγτες γονε χθατ ναω      εσγαπεδ ½ ζαμσε    εξδ    εξδΠοσ ½ εξδΠοσ « ±    βασε®ασσεςτ¨εξδΠοσ Ό½ στςιξηΜεξ«±¬ ΆΣτςιξη δεγοδιξη ζαιμεδΊ υξτεςνιξατεδ στςιξη ατ ποσιτιοξ Ά ®® εξδΠοσ©  υξτιμ βΕξδεδ  μογαμ στςιξηΦαμυε ½ §ςετυςξ § ®® στςιξη®συβ¨σ¬ σταςτΠοσ¬ εξδΠοσ­±©  μογαμ στςιξηΕφαμ ½ βασε®μοαδστςιξη¨στςιξηΦαμυε©  βασε®ασσεςτ¨στςιξηΕφαμ¬ §Ζαιμεδ το μοαδ στςιξη Ϋ § ®® στςιξηΦαμυε ®® §έ ιξ ΚΣΟΞ΄Μυα®δεγοδείσγαξΣτςιξη ατ ποσιτιοξ § ®® σταςτΠοσ ®® § Ί § ®® εξδΠοσ©  ςετυςξ στςιξηΕφαμ¨©¬ εξδΠοσεξδ­­­ Σγαξσ α ΚΣΟΞ στςιξη σλιππιξη αμμ χθιτεσπαγε ζςον τθε γυςςεξτ σταςτ ποσιτιοξ®­­ Òετυςξσ τθε ποσιτιοξ οζ τθε ζιςστ ξοξ­χθιτεσπαγε γθαςαγτες¬ ος ξιμ ιζ τθε χθομε εξδ οζ στςιξη ισ ςεαγθεδ®­­ ΐπαςαν σ Τθε στςιξη βειξη σγαξξεδ­­ ΐπαςαν σταςτΠοσ Τθε σταςτιξη ποσιτιοξ χθεςε χε σθουμδ βεηιξ ςενοφιξη χθιτεσπαγε®­­ ΐςετυςξ ιξτ Τθε ζιςστ ποσιτιοξ χθεςε ξοξ­χθιτεσπαγε χασ εξγουξτεςεδ¬ ος στςιξη®μεξ¨σ©«± ιζ τθε εξδ οζ στςιξη­­ χασ ςεαγθεδ®ζυξγτιοξ δεγοδείσγαξΧθιτεσπαγε¨σ¬σταςτΠοσ©  μογαμ χθιτεσπαγε½Ά άξάςάτΆ  μογαμ στςιξηΜεξ ½ στςιξη®μεξ¨σ©  χθιμε ¨ στςιξη®ζιξδ¨χθιτεσπαγε¬ στςιξη®συβ¨σ¬σταςτΠοσ¬σταςτΠοσ©¬ ±¬ τςυε©  αξδ σταςτΠοσ Ό½ στςιξηΜεξ© δο    σταςτΠοσ ½ σταςτΠοσ « ±  εξδ  ςετυςξ σταςτΠοσεξδ­­­ Εξγοδεσ α στςιξη το βε ΚΣΟΞ­γονπατιβμε®­­ Τθισ κυστ ιξφομφεσ βαγλ­ρυοτιξη ιξφεςτεδ γοννασ¬ βαγλ­ρυοτεσ αξδ ξεχμιξεσ¬ Ι τθιξλ »­©­­ ΐπαςαν σ Τθε στςιξη το ςετυςξ ασ α ΚΣΟΞ εξγοδεδ ¨ι®ε® βαγλρυοτεδ στςιξη©­­ ΐςετυςξ Τθε στςιξη αππςοπςιατεμω εσγαπεδ®ζυξγτιοξ εξγοδεΣτςιξη¨σ©  σ ½ στςιξη®ησυβ¨σ¬§άά§¬§άάάά§©  σ ½ στςιξη®ησυβ¨σ¬§Ά§¬§άάΆ§©  σ ½ στςιξη®ησυβ¨σ¬Ά§Ά¬Άάά§Ά©  σ ½ στςιξη®ησυβ¨σ¬§άξ§¬§άάξ§©  σ ½ στςιξη®ησυβ¨σ¬§άτ§¬§άάτ§©  ςετυςξ σεξδ­­ Δετεςνιξεσ χθετθες τθε ηιφεξ Μυα τωπε ισ αξ αςςαω ος α ταβμε ― διγτιοξαςω®­­ Χε γοξσιδες αξω ταβμε αξ αςςαω ιζ ιτ θασ ιξδεψεσ ±®®ξ ζος ιτσ ξ ιτενσ¬ αξδ ξο­­ οτθες δατα ιξ τθε ταβμε®­­ Ι τθιξλ τθισ νετθοδ ισ γυςςεξτμω α μιττμε §ζμαλω§¬ βυτ γαξ§τ τθιξλ οζ α ηοοδ χαω αςουξδ ιτ ωετ®®®­­ ΐπαςαν τ Τθε ταβμε το εφαμυατε ασ αξ αςςαω­­ ΐςετυςξ βοομεαξ¬ ξυνβες Τςυε ιζ τθε ταβμε γαξ βε ςεπςεσεξτεδ ασ αξ αςςαω¬ ζαμσε οτθεςχισε® Ιζ τςυε¬­­ τθε σεγοξδ ςετυςξεδ φαμυε ισ τθε ναψινυν­­ ξυνβες οζ ιξδεψεδ εμενεξτσ ιξ τθε αςςαω®ζυξγτιοξ ισΑςςαω¨τ©  ­­ Ξεψτ χε γουξτ αμμ τθε εμενεξτσ¬ εξσυςιξη τθατ αξω ξοξ­ιξδεψεδ εμενεξτσ αςε ξοτ­εξγοδαβμε  ­­ ¨χιτθ τθε ποσσιβμε εψγεπτιοξ οζ §ξ§©  μογαμ ναψΙξδεψ ½ °  ζος λ¬φ ιξ βασε®παιςσ¨τ© δο    ιζ ¨βασε®τωπε¨λ©½½§ξυνβες§ αξδ νατθ®ζμοος¨λ©½½λ αξδ ±Ό½λ© τθεξ‰­­ λ¬φ ισ αξ ιξδεψεδ παις      ιζ ¨ξοτ ισΕξγοδαβμε¨φ©© τθεξ ςετυςξ ζαμσε εξδ‰­­ Αμμ αςςαω εμενεξτσ νυστ βε εξγοδαβμε      ναψΙξδεψ ½ νατθ®ναψ¨ναψΙξδεψ¬λ©    εμσε      ιζ ¨λ½½§ξ§© τθεξ        ιζ φ ώ½ ταβμε®ηετξ¨τ© τθεξ ςετυςξ ζαμσε εξδ  ­­ Ζαμσε ιζ ξ δοεσ ξοτ θομδ τθε ξυνβες οζ εμενεξτσ      εμσε ­­ Εμσε οζ ¨λ½½§ξ§©        ιζ ισΕξγοδαβμε¨φ© τθεξ ςετυςξ ζαμσε εξδ      εξδ  ­­ Εξδ οζ ¨λώ½§ξ§©    εξδ ­­ Εξδ οζ λ¬φ ξοτ αξ ιξδεψεδ παις  εξδ  ­­ Εξδ οζ μοοπ αγςοσσ αμμ παιςσ  ςετυςξ τςυε¬ ναψΙξδεψεξδ­­­ Δετεςνιξεσ χθετθες τθε ηιφεξ Μυα οβκεγτ ― ταβμε ― φαςιαβμε γαξ βε ΚΣΟΞ εξγοδεδ® Τθε οξμω­­ τωπεσ τθατ αςε ΚΣΟΞ εξγοδαβμε αςεΊ στςιξη¬ βοομεαξ¬ ξυνβες¬ ξιμ¬ ταβμε αξδ κσοξ®ξυμμ®­­ Ιξ τθισ ινπμενεξτατιοξ¬ αμμ οτθες τωπεσ αςε ιηξοςεδ®­­ ΐπαςαν ο Τθε οβκεγτ το εψανιξε®­­ ΐςετυςξ βοομεαξ Τςυε ιζ τθε οβκεγτ σθουμδ βε ΚΣΟΞ εξγοδεδ¬ ζαμσε ιζ ιτ σθουμδ βε ιηξοςεδ®ζυξγτιοξ ισΕξγοδαβμε¨ο©  μογαμ τ ½ βασε®τωπε¨ο©  ςετυςξ ¨τ½½§στςιξη§ ος τ½½§βοομεαξ§ ος τ½½§ξυνβες§ ος τ½½§ξιμ§ ος τ½½§ταβμε§© ος ¨τ½½§ζυξγτιοξ§ αξδ ο½½ξυμμ©εξδ
+-----------------------------------------------------------------------------
+-- JSON4Lua: JSON encoding / decoding support for the Lua language.
+-- json Module.
+-- Author: Craig Mason-Jones
+-- Homepage: http://json.luaforge.net/
+-- Version: 0.9.40
+-- This module is released under the MIT License (MIT).
+-- Please see LICENCE.txt for details.
+--
+-- USAGE:
+-- This module exposes two functions:
+--   encode(o)
+--     Returns the table / string / boolean / number / nil / json.null value as a JSON-encoded string.
+--   decode(json_string)
+--     Returns a Lua object populated with the data encoded in the JSON string json_string.
+--
+-- REQUIREMENTS:
+--   compat-5.1 if using Lua 5.0
+--
+-- CHANGELOG
+--   0.9.20 Introduction of local Lua functions for private functions (removed _ function prefix).
+--          Fixed Lua 5.1 compatibility issues.
+--   		Introduced json.null to have null values in associative arrays.
+--          encode() performance improvement (more than 50%) through table.concat rather than ..
+--          Introduced decode ability to ignore /**/ comments in the JSON string.
+--   0.9.10 Fix to array encoding / decoding to correctly manage nil/null values in arrays.
+-----------------------------------------------------------------------------
+
+-----------------------------------------------------------------------------
+-- Imports and dependencies
+-----------------------------------------------------------------------------
+local math = require('math')
+local string = require("string")
+local table = require("table")
+
+local base = _G
+
+-----------------------------------------------------------------------------
+-- Module declaration
+-----------------------------------------------------------------------------
+module("json")
+
+-- Public functions
+
+-- Private functions
+local decode_scanArray
+local decode_scanComment
+local decode_scanConstant
+local decode_scanNumber
+local decode_scanObject
+local decode_scanString
+local decode_scanWhitespace
+local encodeString
+local isArray
+local isEncodable
+
+-----------------------------------------------------------------------------
+-- PUBLIC FUNCTIONS
+-----------------------------------------------------------------------------
+--- Encodes an arbitrary Lua object / variable.
+-- @param v The Lua object / variable to be JSON encoded.
+-- @return String containing the JSON encoding in internal Lua string format (i.e. not unicode)
+function encode (v)
+  -- Handle nil values
+  if v==nil then
+    return "null"
+  end
+
+  local vtype = base.type(v)
+
+  -- Handle strings
+  if vtype=='string' then
+    return '"' .. encodeString(v) .. '"'	    -- Need to handle encoding in string
+  end
+
+  -- Handle booleans
+  if vtype=='number' or vtype=='boolean' then
+    return base.tostring(v)
+  end
+
+  -- Handle tables
+  if vtype=='table' then
+    local rval = {}
+    -- Consider arrays separately
+    local bArray, maxCount = isArray(v)
+    if bArray then
+      for i = 1,maxCount do
+        table.insert(rval, encode(v[i]))
+      end
+    else	-- An object, not an array
+      for i,j in base.pairs(v) do
+        if isEncodable(i) and isEncodable(j) then
+          table.insert(rval, '"' .. encodeString(i) .. '":' .. encode(j))
+        end
+      end
+    end
+    if bArray then
+      return '[' .. table.concat(rval,',') ..']'
+    else
+      return '{' .. table.concat(rval,',') .. '}'
+    end
+  end
+
+  -- Handle null values
+  if vtype=='function' and v==null then
+    return 'null'
+  end
+
+  base.assert(false,'encode attempt to encode unsupported type ' .. vtype .. ':' .. base.tostring(v))
+end
+
+
+--- Decodes a JSON string and returns the decoded value as a Lua data structure / value.
+-- @param s The string to scan.
+-- @param [startPos] Optional starting position where the JSON string is located. Defaults to 1.
+-- @param Lua object, number The object that was scanned, as a Lua table / string / number / boolean or nil,
+-- and the position of the first character after
+-- the scanned JSON object.
+function decode(s, startPos)
+  startPos = startPos and startPos or 1
+  startPos = decode_scanWhitespace(s,startPos)
+  base.assert(startPos<=string.len(s), 'Unterminated JSON encoded object found at position in [' .. s .. ']')
+  local curChar = string.sub(s,startPos,startPos)
+  -- Object
+  if curChar=='{' then
+    return decode_scanObject(s,startPos)
+  end
+  -- Array
+  if curChar=='[' then
+    return decode_scanArray(s,startPos)
+  end
+  -- Number
+  if string.find("+-0123456789.e", curChar, 1, true) then
+    return decode_scanNumber(s,startPos)
+  end
+  -- String
+  if curChar==[["]] or curChar==[[']] then
+    return decode_scanString(s,startPos)
+  end
+  if string.sub(s,startPos,startPos+1)=='/*' then
+    return decode(s, decode_scanComment(s,startPos))
+  end
+  -- Otherwise, it must be a constant
+  return decode_scanConstant(s,startPos)
+end
+
+--- The null function allows one to specify a null value in an associative array (which is otherwise
+-- discarded if you set the value with 'nil' in Lua. Simply set t = { first=json.null }
+function null()
+  return null -- so json.null() will also return null ;-)
+end
+-----------------------------------------------------------------------------
+-- Internal, PRIVATE functions.
+-- Following a Python-like convention, I have prefixed all these 'PRIVATE'
+-- functions with an underscore.
+-----------------------------------------------------------------------------
+
+--- Scans an array from JSON into a Lua object
+-- startPos begins at the start of the array.
+-- Returns the array and the next starting position
+-- @param s The string being scanned.
+-- @param startPos The starting position for the scan.
+-- @return table, int The scanned array as a table, and the position of the next character to scan.
+function decode_scanArray(s,startPos)
+  local array = {}	-- The return value
+  local stringLen = string.len(s)
+  base.assert(string.sub(s,startPos,startPos)=='[','decode_scanArray called but array does not start at position ' .. startPos .. ' in string:\n'..s )
+  startPos = startPos + 1
+  -- Infinite loop for array elements
+  repeat
+    startPos = decode_scanWhitespace(s,startPos)
+    base.assert(startPos<=stringLen,'JSON String ended unexpectedly scanning array.')
+    local curChar = string.sub(s,startPos,startPos)
+    if (curChar==']') then
+      return array, startPos+1
+    end
+    if (curChar==',') then
+      startPos = decode_scanWhitespace(s,startPos+1)
+    end
+    base.assert(startPos<=stringLen, 'JSON String ended unexpectedly scanning array.')
+    object, startPos = decode(s,startPos)
+    table.insert(array,object)
+  until false
+end
+
+--- Scans a comment and discards the comment.
+-- Returns the position of the next character following the comment.
+-- @param string s The JSON string to scan.
+-- @param int startPos The starting position of the comment
+function decode_scanComment(s, startPos)
+  base.assert( string.sub(s,startPos,startPos+1)=='/*', "decode_scanComment called but comment does not start at position " .. startPos)
+  local endPos = string.find(s,'*/',startPos+2)
+  base.assert(endPos~=nil, "Unterminated comment in string at " .. startPos)
+  return endPos+2
+end
+
+--- Scans for given constants: true, false or null
+-- Returns the appropriate Lua type, and the position of the next character to read.
+-- @param s The string being scanned.
+-- @param startPos The position in the string at which to start scanning.
+-- @return object, int The object (true, false or nil) and the position at which the next character should be
+-- scanned.
+function decode_scanConstant(s, startPos)
+  local consts = { ["true"] = true, ["false"] = false, ["null"] = nil }
+  local constNames = {"true","false","null"}
+
+  for i,k in base.pairs(constNames) do
+    --print ("[" .. string.sub(s,startPos, startPos + string.len(k) -1) .."]", k)
+    if string.sub(s,startPos, startPos + string.len(k) -1 )==k then
+      return consts[k], startPos + string.len(k)
+    end
+  end
+  base.assert(nil, 'Failed to scan constant from string ' .. s .. ' at starting position ' .. startPos)
+end
+
+--- Scans a number from the JSON encoded string.
+-- (in fact, also is able to scan numeric +- eqns, which is not
+-- in the JSON spec.)
+-- Returns the number, and the position of the next character
+-- after the number.
+-- @param s The string being scanned.
+-- @param startPos The position at which to start scanning.
+-- @return number, int The extracted number and the position of the next character to scan.
+function decode_scanNumber(s,startPos)
+  local endPos = startPos+1
+  local stringLen = string.len(s)
+  local acceptableChars = "+-0123456789.e"
+  while (string.find(acceptableChars, string.sub(s,endPos,endPos), 1, true)
+	and endPos<=stringLen
+	) do
+    endPos = endPos + 1
+  end
+  local stringValue = 'return ' .. string.sub(s,startPos, endPos-1)
+  local stringEval = base.loadstring(stringValue)
+  base.assert(stringEval, 'Failed to scan number [ ' .. stringValue .. '] in JSON string at position ' .. startPos .. ' : ' .. endPos)
+  return stringEval(), endPos
+end
+
+--- Scans a JSON object into a Lua object.
+-- startPos begins at the start of the object.
+-- Returns the object and the next starting position.
+-- @param s The string being scanned.
+-- @param startPos The starting position of the scan.
+-- @return table, int The scanned object as a table and the position of the next character to scan.
+function decode_scanObject(s,startPos)
+  local object = {}
+  local stringLen = string.len(s)
+  local key, value
+  base.assert(string.sub(s,startPos,startPos)=='{','decode_scanObject called but object does not start at position ' .. startPos .. ' in string:\n' .. s)
+  startPos = startPos + 1
+  repeat
+    startPos = decode_scanWhitespace(s,startPos)
+    base.assert(startPos<=stringLen, 'JSON string ended unexpectedly while scanning object.')
+    local curChar = string.sub(s,startPos,startPos)
+    if (curChar=='}') then
+      return object,startPos+1
+    end
+    if (curChar==',') then
+      startPos = decode_scanWhitespace(s,startPos+1)
+    end
+    base.assert(startPos<=stringLen, 'JSON string ended unexpectedly scanning object.')
+    -- Scan the key
+    key, startPos = decode(s,startPos)
+    base.assert(startPos<=stringLen, 'JSON string ended unexpectedly searching for value of key ' .. key)
+    startPos = decode_scanWhitespace(s,startPos)
+    base.assert(startPos<=stringLen, 'JSON string ended unexpectedly searching for value of key ' .. key)
+    base.assert(string.sub(s,startPos,startPos)==':','JSON object key-value assignment mal-formed at ' .. startPos)
+    startPos = decode_scanWhitespace(s,startPos+1)
+    base.assert(startPos<=stringLen, 'JSON string ended unexpectedly searching for value of key ' .. key)
+    value, startPos = decode(s,startPos)
+    object[key]=value
+  until false	-- infinite loop while key-value pairs are found
+end
+
+--- Scans a JSON string from the opening inverted comma or single quote to the
+-- end of the string.
+-- Returns the string extracted as a Lua string,
+-- and the position of the next non-string character
+-- (after the closing inverted comma or single quote).
+-- @param s The string being scanned.
+-- @param startPos The starting position of the scan.
+-- @return string, int The extracted string as a Lua string, and the next character to parse.
+function decode_scanString(s,startPos)
+  base.assert(startPos, 'decode_scanString(..) called without start position')
+  local startChar = string.sub(s,startPos,startPos)
+  base.assert(startChar==[[']] or startChar==[["]],'decode_scanString called for a non-string')
+  local escaped = false
+  local endPos = startPos + 1
+  local bEnded = false
+  local stringLen = string.len(s)
+  repeat
+    local curChar = string.sub(s,endPos,endPos)
+    if not escaped then
+      if curChar==[[\]] then
+        escaped = true
+      else
+        bEnded = curChar==startChar
+      end
+    else
+      -- If we're escaped, we accept the current character come what may
+      escaped = false
+    end
+    endPos = endPos + 1
+    base.assert(endPos <= stringLen+1, "String decoding failed: unterminated string at position " .. endPos)
+  until bEnded
+  local stringValue = 'return ' .. string.sub(s, startPos, endPos-1)
+  local stringEval = base.loadstring(stringValue)
+  base.assert(stringEval, 'Failed to load string [ ' .. stringValue .. '] in JSON4Lua.decode_scanString at position ' .. startPos .. ' : ' .. endPos)
+  return stringEval(), endPos
+end
+
+--- Scans a JSON string skipping all whitespace from the current start position.
+-- Returns the position of the first non-whitespace character, or nil if the whole end of string is reached.
+-- @param s The string being scanned
+-- @param startPos The starting position where we should begin removing whitespace.
+-- @return int The first position where non-whitespace was encountered, or string.len(s)+1 if the end of string
+-- was reached.
+function decode_scanWhitespace(s,startPos)
+  local whitespace=" \n\r\t"
+  local stringLen = string.len(s)
+  while ( string.find(whitespace, string.sub(s,startPos,startPos), 1, true)  and startPos <= stringLen) do
+    startPos = startPos + 1
+  end
+  return startPos
+end
+
+--- Encodes a string to be JSON-compatible.
+-- This just involves back-quoting inverted commas, back-quotes and newlines, I think ;-)
+-- @param s The string to return as a JSON encoded (i.e. backquoted string)
+-- @return The string appropriately escaped.
+function encodeString(s)
+  s = string.gsub(s,'\\','\\\\')
+  s = string.gsub(s,'"','\\"')
+  s = string.gsub(s,"'","\\'")
+  s = string.gsub(s,'\n','\\n')
+  s = string.gsub(s,'\t','\\t')
+  return s
+end
+
+-- Determines whether the given Lua type is an array or a table / dictionary.
+-- We consider any table an array if it has indexes 1..n for its n items, and no
+-- other data in the table.
+-- I think this method is currently a little 'flaky', but can't think of a good way around it yet...
+-- @param t The table to evaluate as an array
+-- @return boolean, number True if the table can be represented as an array, false otherwise. If true,
+-- the second returned value is the maximum
+-- number of indexed elements in the array.
+function isArray(t)
+  -- Next we count all the elements, ensuring that any non-indexed elements are not-encodable
+  -- (with the possible exception of 'n')
+  local maxIndex = 0
+  for k,v in base.pairs(t) do
+    if (base.type(k)=='number' and math.floor(k)==k and 1<=k) then	-- k,v is an indexed pair
+      if (not isEncodable(v)) then return false end	-- All array elements must be encodable
+      maxIndex = math.max(maxIndex,k)
+    else
+      if (k=='n') then
+        if v ~= table.getn(t) then return false end  -- False if n does not hold the number of elements
+      else -- Else of (k=='n')
+        if isEncodable(v) then return false end
+      end  -- End of (k~='n')
+    end -- End of k,v not an indexed pair
+  end  -- End of loop across all pairs
+  return true, maxIndex
+end
+
+--- Determines whether the given Lua object / table / variable can be JSON encoded. The only
+-- types that are JSON encodable are: string, boolean, number, nil, table and json.null.
+-- In this implementation, all other types are ignored.
+-- @param o The object to examine.
+-- @return boolean True if the object should be JSON encoded, false if it should be ignored.
+function isEncodable(o)
+  local t = base.type(o)
+  return (t=='string' or t=='boolean' or t=='number' or t=='nil' or t=='table') or (t=='function' and o==null)
+end
+

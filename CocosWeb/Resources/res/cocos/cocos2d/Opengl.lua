@@ -1,1 +1,297 @@
-ιζ ξοτ ημ τθεξ ςετυςξ εξδ­­Γςεατε ζυξγτιοξσζυξγτιοξ  ημ®γςεατεΤεψτυςε¨©    μογαμ ςετΤαβμε ½ ϋύ    ςετΤαβμε®τεψτυςείιδ ½ ημ®ίγςεατεΤεψτυςε¨©    ςετυςξ ςετΤαβμεεξδζυξγτιοξ ημ®γςεατεΒυζζες¨©    μογαμ ςετΤαβμε ½ ϋύ    ςετΤαβμε®βυζζεςίιδ ½ ημ®ίγςεατεΒυζζες¨©    ςετυςξ ςετΤαβμεεξδζυξγτιοξ ημ®γςεατεÒεξδεςβυζζες¨©    μογαμ ςετΤαβμε ½ ϋύ    ςετΤαβμε®ςεξδεςβυζζεςίιδ ½ ημ®ίγςεατεÒεξδεςυζζες¨©    ςετυςξ ςετΤαβμεεξδζυξγτιοξ ημ®γςεατεΖςανεβυζζες¨ ©    μογαμ ςετΤαβμε ½ ϋύ    ςετΤαβμε®ζςανεβυζζεςίιδ ½ ημ®ίγςεατεΖςανεβυζζες¨©    ςετυςξ ςετΤαβμεεξδζυξγτιοξ ημ®γςεατεΠςοηςαν¨©    μογαμ ςετΤαβμε ½ ϋύ    ςετΤαβμε®πςοηςανίιδ ½ ημ®ίγςεατεΠςοηςαν¨©    ςετυςξ ςετΤαβμεεξδζυξγτιοξ ημ®γςεατεΣθαδες¨σθαδεςΤωπε©    μογαμ ςετΤαβμε ½ ϋύ    ςετΤαβμε®σθαδεςίιδ ½ ημ®ίγςεατεΣθαδες¨σθαδεςΤωπε©    ςετυςξ ςετΤαβμεεξδ­­Δεμετε Ζυξζυξγτιοξ ημ®δεμετεΤεψτυςε¨τεψτυςε©    μογαμ τεψτυςείιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨τεψτυςε© τθεξ        τεψτυςείιδ ½ τεψτυςε    εμσειζ ΆταβμεΆ ½½ τωπε¨τεψτυςε© τθεξ        τεψτυςείιδ ½ τεψτυςε®τεψτυςείιδ    εξδ    ημ®ίδεμετεΤεψτυςε¨τεψτυςείιδ©εξδζυξγτιοξ ημ®δεμετεΒυζζες¨βυζζες©    μογαμ βυζζεςίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨βυζζες© τθεξ        βυζζεςίιδ ½ βυζζες    εμσειζ ΆταβμεΆ ½½ τωπε¨βυζζες© τθεξ        βυζζεςίιδ ½ βυζζες®βυζζεςίιδ    εξδ    ημ®ίδεμετεΒυζζες¨βυζζεςίιδ©εξδζυξγτιοξ ημ®δεμετεÒεξδεςβυζζες¨βυζζες©    μογαμ ςεξδεςβυζζεςίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨βυζζες© τθεξ        ςεξδεςβυζζεςίιδ ½ βυζζες    εμσειζ ΆταβμεΆ ½½ τωπε¨βυζζες© τθεξ        ςεξδεςβυζζεςίιδ ½ βυζζες®ςεξδεςβυζζεςίιδ    εξδ    ημ®ίδεμετεÒεξδεςβυζζες¨ςεξδεςβυζζεςίιδ©εξδζυξγτιοξ ημ®δεμετεΖςανεβυζζες¨βυζζες©    μογαμ ζςανεβυζζεςίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨βυζζες© τθεξ        ζςανεβυζζεςίιδ ½ βυζζες    εμσειζ ΆταβμεΆ ½½ τωπε¨βυζζες© τθεξ        ζςανεβυζζεςίιδ ½ βυζζες®ζςανεβυζζεςίιδ    εξδ    ημ®ίδεμετεΖςανεβυζζες¨ζςανεβυζζεςίιδ©εξδζυξγτιοξ ημ®δεμετεΠςοηςαν¨ πςοηςαν ©    μογαμ πςοηςανίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨βυζζες© τθεξ        πςοηςανίιδ ½ πςοηςαν    εμσειζ ΆταβμεΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν®πςοηςανίιδ    εξδ    ημ®ίδεμετεΠςοηςαν¨πςοηςανίιδ©εξδζυξγτιοξ ημ®δεμετεΣθαδες¨σθαδες©    μογαμ σθαδεςίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨σθαδες© τθεξ        σθαδεςίιδ ½ σθαδες    εμσειζ ΆταβμεΆ ½½ τωπε¨σθαδες© τθεξ        σθαδεςίιδ ½ σθαδες®σθαδεςίιδ    εξδ    ημ®ίδεμετεΣθαδες¨σθαδεςίιδ©εξδ­­Βιξδ Òεματεδζυξγτιοξ ημ®βιξδΤεψτυςε¨ταςηετ¬ τεψτυςε©    μογαμ τεψτυςείιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨τεψτυςε© τθεξ        τεψτυςείιδ ½ τεψτυςε    εμσειζ ΆταβμεΆ ½½ τωπε¨τεψτυςε© τθεξ        τεψτυςείιδ ½ τεψτυςε®τεψτυςείιδ    εξδ    ημ®ίβιξδΤεψτυςε¨ταςηετ¬τεψτυςείιδ©εξδζυξγτιοξ ημ®βιξδΒυζζες¨ ταςηετ¬βυζζες ©    μογαμ βυζζεςίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨βυζζες© τθεξ        βυζζεςίιδ ½ βυζζες    εμσειζ ΆταβμεΆ ½½ τωπε¨βυζζες© τθεξ        βυζζεςίιδ ½ βυζζες®βυζζεςίιδ    εξδ    ημ®ίβιξδΒυζζες¨ταςηετ¬ βυζζεςίιδ©εξδζυξγτιοξ ημ®βιξδÒεξδεςΒυζζες¨ταςηετ¬ βυζζες©    μογαμ βυζζεςίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨βυζζες© τθεξ        βυζζεςίιδ ½ βυζζες»    εμσειζ ΆταβμεΆ ½½ τωπε¨βυζζες© τθεξ        βυζζεςίιδ ½ βυζζες®βυζζεςίιδ    εξδ    ημ®ίβιξδÒεξδεςβυζζες¨ταςηετ¬ βυζζεςίιδ©εξδζυξγτιοξ ημ®βιξδΖςανεβυζζες¨ταςηετ¬ βυζζες©    μογαμ βυζζεςίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨βυζζες© τθεξ        βυζζεςίιδ ½ βυζζες    εμσειζ ΆταβμεΆ ½½ τωπε¨βυζζες© τθεξ        βυζζεςίιδ ½ βυζζες®βυζζεςίιδ    εξδ    ημ®ίβιξδΖςανεβυζζες¨ταςηετ¬ βυζζεςίιδ©εξδ­­Υξιζοςν ςεματεδζυξγτιοξ ημ®ηετΥξιζοςν¨πςοηςαν¬ μογατιοξ©    μογαμ πςοηςανίιδ ½ °    μογαμ μογατιοξίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν    εμσε        πςοηςανίιδ ½ πςοηςαν®πςοηςανίιδ    εξδ    ιζ ΆξυνβεςΆ ½½ τωπε¨μογατιοξ© τθεξ        μογατιοξίιδ ½ μογατιοξ    εμσε        μογατιοξίιδ ½ μογατιοξ®μογατιοξίιδ    εξδ    ςετυςξ ημ®ίηετΥξιζοςν¨πςοηςανίιδ¬ μογατιοξίιδ©εξδ­­σθαδες ςεματεδζυξγτιοξ ημ®γονπιμεΣθαδες¨σθαδες©    ημ®ίγονπιμεΣθαδες¨ σθαδες®σθαδεςίιδ©εξδζυξγτιοξ ημ®σθαδεςΣουςγε¨σθαδες¬ σουςγε©    ημ®ίσθαδεςΣουςγε¨σθαδες®σθαδεςίιδ¬ σουςγε©εξδζυξγτιοξ ημ®ηετΣθαδεςΠαςανετες¨σθαδες¬ ε©    ςετυςξ ημ®ίηετΣθαδεςΠαςανετες¨σθαδες®σθαδεςίιδ¬ε©εξδζυξγτιοξ ημ®ηετΣθαδεςΙξζοΜοη¨ σθαδες ©    ςετυςξ ημ®ίηετΣθαδεςΙξζοΜοη¨σθαδες®σθαδεςίιδ©εξδ­­πςοηςαν ςεματεδζυξγτιοξ ημ®ατταγθΣθαδες¨ πςοηςαν¬ σθαδες ©    μογαμ πςοηςανίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν    εμσειζ ΆταβμεΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν®πςοηςανίιδ    εξδ    ημ®ίατταγθΣθαδες¨πςοηςανίιδ¬ σθαδες®σθαδεςίιδ©εξδζυξγτιοξ ημ®μιξλΠςοηςαν¨ πςοηςαν ©    μογαμ πςοηςανίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν    εμσειζ ΆταβμεΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν®πςοηςανίιδ    εξδ    ημ®ίμιξλΠςοηςαν¨πςοηςανίιδ©εξδζυξγτιοξ ημ®ηετΠςοηςανΠαςανετες¨πςοηςαν¬ ε©    μογαμ πςοηςανίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν    εμσειζ ΆταβμεΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν®πςοηςανίιδ    εξδ    ςετυςξ ημ®ίηετΠςοηςανΠαςανετες¨πςοηςανίιδ¬ ε©εξδζυξγτιοξ ημ®υσεΠςοηςαν¨πςοηςαν©    μογαμ πςοηςανίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν    εμσειζ ΆταβμεΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν®πςοηςανίιδ    εξδ    ημ®ίυσεΠςοηςαν ¨πςοηςανίιδ©εξδζυξγτιοξ ημ®ηετΑττςιβΜογατιοξ¨πςοηςαν¬ ξανε ©    μογαμ πςοηςανίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν    εμσειζ ΆταβμεΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν®πςοηςανίιδ    εξδ    ςετυςξ ημ®ίηετΑττςιβΜογατιοξ¨πςοηςανίιδ¬ ξανε©εξδζυξγτιοξ ημ®ηετΥξιζοςνΜογατιοξ¨ πςοηςαν¬ ξανε ©    μογαμ πςοηςανίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν    εμσειζ ΆταβμεΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν®πςοηςανίιδ    εξδ    ςετυςξ ημ®ίηετΥξιζοςνΜογατιοξ¨πςοηςανίιδ¬ξανε©εξδζυξγτιοξ ημ®ηετΑγτιφεΑττςιβ¨ πςοηςαν¬ ιξδεψ ©    μογαμ πςοηςανίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν    εμσειζ ΆταβμεΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν®πςοηςανίιδ    εξδ    ςετυςξ ημ®ίηετΑγτιφεΑττςιβ¨πςοηςανίιδ¬ ιξδεψ©»εξδζυξγτιοξ ημ®ηετΑγτιφεΥξιζοςν¨ πςοηςαν¬ ιξδεψ ©    μογαμ πςοηςανίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν    εμσειζ ΆταβμεΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν®πςοηςανίιδ    εξδ    ςετυςξ ημ®ίηετΑγτιφεΥξιζοςν¨πςοηςανίιδ¬ ιξδεψ©εξδζυξγτιοξ ημ®ηετΑτταγθεδΣθαδεςσ¨πςοηςαν©    μογαμ πςοηςανίιδ ½ °    ιζ ΆξυνβεςΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν    εμσειζ ΆταβμεΆ ½½ τωπε¨πςοηςαν© τθεξ        πςοηςανίιδ ½ πςοηςαν®πςοηςανίιδ    εξδ    ςετυςξ ημ®ίηετΑτταγθεδΣθαδεςσ¨πςοηςανίιδ©εξδζυξγτιοξ ημ®ημΞοδεΓςεατε¨©    ςετυςξ γγ®ΗΜΞοδεΊγςεατε¨©εξδ
+
+if not gl then return end
+
+--Create functions
+function  gl.createTexture()
+    local retTable = {}
+    retTable.texture_id = gl._createTexture()
+    return retTable
+end
+
+function gl.createBuffer()
+    local retTable = {}
+    retTable.buffer_id = gl._createBuffer()
+    return retTable
+end
+
+function gl.createRenderbuffer()
+    local retTable = {}
+    retTable.renderbuffer_id = gl._createRenderuffer()
+    return retTable
+end
+
+function gl.createFramebuffer( )
+    local retTable = {}
+    retTable.framebuffer_id = gl._createFramebuffer()
+    return retTable
+end
+
+function gl.createProgram()
+    local retTable = {}
+    retTable.program_id = gl._createProgram()
+    return retTable
+end
+
+function gl.createShader(shaderType)
+    local retTable = {}
+    retTable.shader_id = gl._createShader(shaderType)
+    return retTable
+end
+
+--Delete Fun
+function gl.deleteTexture(texture)
+    local texture_id = 0
+    if "number" == type(texture) then
+        texture_id = texture
+    elseif "table" == type(texture) then
+        texture_id = texture.texture_id
+    end
+    gl._deleteTexture(texture_id)
+end
+
+function gl.deleteBuffer(buffer)
+    local buffer_id = 0
+    if "number" == type(buffer) then
+        buffer_id = buffer
+    elseif "table" == type(buffer) then
+        buffer_id = buffer.buffer_id
+    end
+    gl._deleteBuffer(buffer_id)
+end
+
+function gl.deleteRenderbuffer(buffer)
+    local renderbuffer_id = 0
+    if "number" == type(buffer) then
+        renderbuffer_id = buffer
+    elseif "table" == type(buffer) then
+        renderbuffer_id = buffer.renderbuffer_id
+    end
+    gl._deleteRenderbuffer(renderbuffer_id)
+end
+
+function gl.deleteFramebuffer(buffer)
+    local framebuffer_id = 0
+    if "number" == type(buffer) then
+        framebuffer_id = buffer
+    elseif "table" == type(buffer) then
+        framebuffer_id = buffer.framebuffer_id
+    end
+    gl._deleteFramebuffer(framebuffer_id)
+end
+
+function gl.deleteProgram( program )
+    local program_id = 0
+    if "number" == type(buffer) then
+        program_id = program
+    elseif "table" == type(program) then
+        program_id = program.program_id
+    end
+
+    gl._deleteProgram(program_id)
+end
+
+function gl.deleteShader(shader)
+    local shader_id = 0
+    if "number" == type(shader) then
+        shader_id = shader
+    elseif "table" == type(shader) then
+        shader_id = shader.shader_id
+    end
+
+    gl._deleteShader(shader_id)
+end
+
+--Bind Related
+function gl.bindTexture(target, texture)
+    local texture_id = 0
+    if "number" == type(texture) then
+        texture_id = texture
+    elseif "table" == type(texture) then
+        texture_id = texture.texture_id
+    end
+
+    gl._bindTexture(target,texture_id)
+end
+
+function gl.bindBuffer( target,buffer )
+    local buffer_id = 0
+    if "number" == type(buffer) then
+        buffer_id = buffer
+    elseif "table" == type(buffer) then
+        buffer_id = buffer.buffer_id
+    end
+
+    gl._bindBuffer(target, buffer_id)
+end
+
+function gl.bindRenderBuffer(target, buffer)
+    local buffer_id = 0
+
+    if "number" == type(buffer) then
+        buffer_id = buffer;
+    elseif "table" == type(buffer) then
+        buffer_id = buffer.buffer_id
+    end
+
+    gl._bindRenderbuffer(target, buffer_id)
+end
+
+function gl.bindFramebuffer(target, buffer)
+    local buffer_id = 0
+
+    if "number" == type(buffer) then
+        buffer_id = buffer
+    elseif "table" == type(buffer) then
+        buffer_id = buffer.buffer_id
+    end
+
+    gl._bindFramebuffer(target, buffer_id)
+end
+
+--Uniform related
+function gl.getUniform(program, location)
+    local program_id = 0
+    local location_id = 0
+
+    if "number" == type(program) then
+        program_id = program
+    else
+        program_id = program.program_id
+    end
+
+    if "number" == type(location) then
+        location_id = location
+    else
+        location_id = location.location_id
+    end
+
+    return gl._getUniform(program_id, location_id)
+end
+
+--shader related
+function gl.compileShader(shader)
+    gl._compileShader( shader.shader_id)
+end
+
+function gl.shaderSource(shader, source)
+    gl._shaderSource(shader.shader_id, source)
+end
+
+function gl.getShaderParameter(shader, e)
+    return gl._getShaderParameter(shader.shader_id,e)
+end
+
+function gl.getShaderInfoLog( shader )
+    return gl._getShaderInfoLog(shader.shader_id)
+end
+
+--program related
+function gl.attachShader( program, shader )
+    local program_id = 0
+
+    if "number" == type(program) then
+        program_id = program
+    elseif "table" == type(program) then
+        program_id = program.program_id
+    end
+
+    gl._attachShader(program_id, shader.shader_id)
+end
+
+function gl.linkProgram( program )
+    local program_id = 0
+
+    if "number" == type(program) then
+        program_id = program
+    elseif "table" == type(program) then
+        program_id = program.program_id
+    end
+
+    gl._linkProgram(program_id)
+end
+
+function gl.getProgramParameter(program, e)
+    local program_id = 0
+
+    if "number" == type(program) then
+        program_id = program
+    elseif "table" == type(program) then
+        program_id = program.program_id
+    end
+
+    return gl._getProgramParameter(program_id, e)
+end
+
+function gl.useProgram(program)
+    local program_id = 0
+    if "number" == type(program) then
+        program_id = program
+    elseif "table" == type(program) then
+        program_id = program.program_id
+    end
+
+    gl._useProgram (program_id)
+end
+
+function gl.getAttribLocation(program, name )
+    local program_id = 0
+
+    if "number" == type(program) then
+        program_id = program
+    elseif "table" == type(program) then
+        program_id = program.program_id
+    end
+
+    return gl._getAttribLocation(program_id, name)
+end
+
+function gl.getUniformLocation( program, name )
+    local program_id = 0
+
+    if "number" == type(program) then
+        program_id = program
+    elseif "table" == type(program) then
+        program_id = program.program_id
+    end
+
+    return gl._getUniformLocation(program_id,name)
+end
+
+function gl.getActiveAttrib( program, index )
+    local program_id = 0
+    if "number" == type(program) then
+        program_id = program
+    elseif "table" == type(program) then
+        program_id = program.program_id
+    end
+
+    return gl._getActiveAttrib(program_id, index);
+end
+
+function gl.getActiveUniform( program, index )
+    local program_id = 0
+
+    if "number" == type(program) then
+        program_id = program
+    elseif "table" == type(program) then
+        program_id = program.program_id
+    end
+
+    return gl._getActiveUniform(program_id, index)
+end
+
+function gl.getAttachedShaders(program)
+    local program_id = 0
+
+    if "number" == type(program) then
+        program_id = program
+    elseif "table" == type(program) then
+        program_id = program.program_id
+    end
+
+    return gl._getAttachedShaders(program_id)
+end
+
+function gl.glNodeCreate()
+    return cc.GLNode:create()
+end

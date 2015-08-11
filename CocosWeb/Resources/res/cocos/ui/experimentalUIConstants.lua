@@ -1,1 +1,10 @@
-ιζ ξιμ ½½ γγεψπ τθεξ‰ςετυςξεξδγγεψπ®ΦιδεοΠμαωεςΕφεξτ ½ ϋ    ΠΜΑΩΙΞΗ ½ °¬    ΠΑΥΣΕΔ ½ ±¬    ΣΤΟΠΠΕΔ½ ²¬    ΓΟΝΠΜΕΤΕΔ ½³¬ύ
+if nil == ccexp then
+	return
+end
+
+ccexp.VideoPlayerEvent = {
+    PLAYING = 0,
+    PAUSED = 1,
+    STOPPED= 2,
+    COMPLETED =3,
+}

@@ -1,1 +1,28 @@
-μογαμ μυαογ ½ ϋύμογαμ γαμμΣτατιγΝετθοδ ½ ΜυαΟβκγΒςιδηε®γαμμΣτατιγΝετθοδζυξγτιοξ μυαογ®γαμμΣτατιγΝετθοδ¨γμασσΞανε¬ νετθοδΞανε¬ αςησ©    μογαμ ολ¬ ςετ ½ γαμμΣτατιγΝετθοδ¨γμασσΞανε¬ νετθοδΞανε¬ αςησ©    ιζ ξοτ ολ τθεξ        μογαμ νση ½ στςιξη®ζοςνατ¨Άμυαογ®γαμμΣτατιγΝετθοδ¨άΆ¥σάΆ¬ άΆ¥σάΆ¬ άΆ¥σάΆ© ­ εςςοςΊ Ϋ¥σέ Ά¬                γμασσΞανε¬ νετθοδΞανε¬ τοστςιξη¨αςησ©¬ τοστςιξη¨ςετ©©        ιζ ςετ ½½ ­± τθεξ            πςιξτ¨νση ®® ΆΙΞΦΑΜΙΔ ΠΑÒΑΝΕΤΕÒΣΆ©        εμσειζ ςετ ½½ ­² τθεξ            πςιξτ¨νση ®® ΆΓΜΑΣΣ ΞΟΤ ΖΟΥΞΔΆ©        εμσειζ ςετ ½½ ­³ τθεξ            πςιξτ¨νση ®® ΆΝΕΤΘΟΔ ΞΟΤ ΖΟΥΞΔΆ©        εμσειζ ςετ ½½ ­΄ τθεξ            πςιξτ¨νση ®® ΆΕΨΓΕΠΤΙΟΞ ΟΓΓΥÒÒΕΔΆ©        εμσειζ ςετ ½½ ­µ τθεξ            πςιξτ¨νση ®® ΆΙΞΦΑΜΙΔ ΝΕΤΘΟΔ ΣΙΗΞΑΤΥÒΕΆ©        εμσε            πςιξτ¨νση ®® ΆΥΞΛΞΟΧΞΆ©        εξδ    εξδ    ςετυςξ ολ¬ ςετεξδςετυςξ μυαογ
+
+local luaoc = {}
+
+local callStaticMethod = LuaObjcBridge.callStaticMethod
+
+function luaoc.callStaticMethod(className, methodName, args)
+    local ok, ret = callStaticMethod(className, methodName, args)
+    if not ok then
+        local msg = string.format("luaoc.callStaticMethod(\"%s\", \"%s\", \"%s\") - error: [%s] ",
+                className, methodName, tostring(args), tostring(ret))
+        if ret == -1 then
+            print(msg .. "INVALID PARAMETERS")
+        elseif ret == -2 then
+            print(msg .. "CLASS NOT FOUND")
+        elseif ret == -3 then
+            print(msg .. "METHOD NOT FOUND")
+        elseif ret == -4 then
+            print(msg .. "EXCEPTION OCCURRED")
+        elseif ret == -5 then
+            print(msg .. "INVALID METHOD SIGNATURE")
+        else
+            print(msg .. "UNKNOWN")
+        end
+    end
+    return ok, ret
+end
+
+return luaoc

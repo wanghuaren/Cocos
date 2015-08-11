@@ -1,1 +1,82 @@
-­­ΫΫΓοπωςιηθτ ¨γ© ²°±±­²°±µ γθυλοξη­ιξγγ®γονΠεςνισσιοξ ισ θεςεβω ηςαξτεδ¬ ζςεε οζ γθαςηε¬ το αξω πεςσοξ οβταιξιξη α γοπωοζ τθισ σοζτχαςε αξδ ασσογιατεδ δογυνεξτατιοξ ζιμεσ ¨τθε ΆΣοζτχαςεΆ©¬ το δεαμιξ τθε Σοζτχαςε χιτθουτ ςεστςιγτιοξ¬ ιξγμυδιξη χιτθουτ μινιτατιοξ τθε ςιηθτστο υσε¬ γοπω¬ νοδιζω¬ νεςηε¬ πυβμισθ¬ διστςιβυτε¬ συβμιγεξσε¬ αξδ―ος σεμμγοπιεσ οζ τθε Σοζτχαςε¬ αξδ το πεςνιτ πεςσοξσ το χθον τθε Σοζτχαςε ισζυςξισθεδ το δο σο¬ συβκεγτ το τθε ζομμοχιξη γοξδιτιοξσΊΤθε αβοφε γοπωςιηθτ ξοτιγε αξδ τθισ πεςνισσιοξ ξοτιγε σθαμμ βε ιξγμυδεδ ιξαμμ γοπιεσ ος συβσταξτιαμ ποςτιοξσ οζ τθε Σοζτχαςε®ΤΘΕ ΣΟΖΤΧΑÒΕ ΙΣ ΠÒΟΦΙΔΕΔ ΆΑΣ ΙΣΆ¬ ΧΙΤΘΟΥΤ ΧΑÒÒΑΞΤΩ ΟΖ ΑΞΩ ΛΙΞΔ¬ ΕΨΠÒΕΣΣ ΟÒΙΝΠΜΙΕΔ¬ ΙΞΓΜΥΔΙΞΗ ΒΥΤ ΞΟΤ ΜΙΝΙΤΕΔ ΤΟ ΤΘΕ ΧΑÒÒΑΞΤΙΕΣ ΟΖ ΝΕÒΓΘΑΞΤΑΒΙΜΙΤΩ¬ΖΙΤΞΕΣΣ ΖΟÒ Α ΠΑÒΤΙΓΥΜΑÒ ΠΥÒΠΟΣΕ ΑΞΔ ΞΟΞΙΞΖÒΙΞΗΕΝΕΞΤ® ΙΞ ΞΟ ΕΦΕΞΤ ΣΘΑΜΜ ΤΘΕΑΥΤΘΟÒΣ ΟÒ ΓΟΠΩÒΙΗΘΤ ΘΟΜΔΕÒΣ ΒΕ ΜΙΑΒΜΕ ΖΟÒ ΑΞΩ ΓΜΑΙΝ¬ ΔΑΝΑΗΕΣ ΟÒ ΟΤΘΕÒΜΙΑΒΙΜΙΤΩ¬ ΧΘΕΤΘΕÒ ΙΞ ΑΞ ΑΓΤΙΟΞ ΟΖ ΓΟΞΤÒΑΓΤ¬ ΤΟÒΤ ΟÒ ΟΤΘΕÒΧΙΣΕ¬ ΑÒΙΣΙΞΗ ΖÒΟΝ¬ΟΥΤ ΟΖ ΟÒ ΙΞ ΓΟΞΞΕΓΤΙΟΞ ΧΙΤΘ ΤΘΕ ΣΟΖΤΧΑÒΕ ΟÒ ΤΘΕ ΥΣΕ ΟÒ ΟΤΘΕÒ ΔΕΑΜΙΞΗΣ ΙΞΤΘΕ ΣΟΖΤΧΑÒΕ®έέιζ τωπε¨ΔΕΒΥΗ© ώ½ ΆξυνβεςΆ τθεξ ΔΕΒΥΗ ½ ° εξδ­­ μοαδ ζςανεχοςλπςιξτΙξζο¨ΆΆ©πςιξτΙξζο¨Ά£ ΔΕΒΥΗ                        ½ Ά ®® ΔΕΒΥΗ©πςιξτΙξζο¨Ά£Ά©δεφιγε     ½ ςερυιςε¨Άγογοσ®ζςανεχοςλ®δεφιγεΆ©δισπμαω    ½ ςερυιςε¨Άγογοσ®ζςανεχοςλ®δισπμαωΆ©αυδιο      ½ ςερυιςε¨Άγογοσ®ζςανεχοςλ®αυδιοΆ©τςαξσιτιοξ ½ ςερυιςε¨Άγογοσ®ζςανεχοςλ®τςαξσιτιοξΆ©ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΞοδεΕψΆ©ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΣπςιτεΕψΆ©ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΜαωεςΕψΆ©ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΝεξυΕψΆ©ιζ γγυι τθεξ    ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΥΙΧιδηετΆ©    ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΥΙΓθεγλΒοψΆ©    ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΥΙΕδιτΒοψΆ©    ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΥΙΜιστΦιεχΆ©    ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΥΙΠαηεΦιεχΆ©    ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΥΙΣγςομμΦιεχΆ©    ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΥΙΣμιδεςΆ©    ςερυιςε¨Άγογοσ®ζςανεχοςλ®εψτεξδσ®ΥΙΤεψτΖιεμδΆ©εξδςερυιςε¨Άγογοσ®ζςανεχοςλ®παγλαηείσυπποςτΆ©­­ ςεηιστες τθε βυιμδ­ιξ παγλαηεσγγ®ςεηιστες¨ΆεφεξτΆ¬ ςερυιςε¨Άγογοσ®ζςανεχοςλ®γονποξεξτσ®εφεξτΆ©©­­ εψποςτ ημοβαμ φαςιαβμεμογαμ ίίη ½ ίΗγγ®εψποςτσ ½ ϋύσετνεταταβμε¨γγ®εψποςτσ¬ ϋ    ίίξεχιξδεψ ½ ζυξγτιοξ¨ί¬ ξανε¬ φαμυε©        ςαχσετ¨ίίη¬ ξανε¬ φαμυε©    εξδ¬    ίίιξδεψ ½ ζυξγτιοξ¨ί¬ ξανε©        ςετυςξ ςαχηετ¨ίίη¬ ξανε©    εξδύ©­­ δισαβμε γςεατε υξεψπεγτεδ ημοβαμ φαςιαβμεζυξγτιοξ γγ®δισαβμείημοβαμ¨©    σετνεταταβμε¨ίίη¬ ϋ        ίίξεχιξδεψ ½ ζυξγτιοξ¨ί¬ ξανε¬ φαμυε©            εςςος¨στςιξη®ζοςνατ¨ΆΥΣΕ άΆ γγ®εψποςτσ®¥σ ½ φαμυε άΆ ΙΞΣΤΕΑΔ ΟΖ ΣΕΤ ΗΜΟΒΑΜ ΦΑÒΙΑΒΜΕΆ¬ ξανε©¬ °©        εξδ    ύ©εξδιζ ΓΓίΔΙΣΑΒΜΕίΗΜΟΒΑΜ τθεξ    γγ®δισαβμείημοβαμ¨©εξδ
+--[[
+
+Copyright (c) 2011-2015 chukong-incc.com
+
+Permission is hereby granted, free of charge, to any person obtaining a copy
+of this software and associated documentation files (the "Software"), to deal
+in the Software without restriction, including without limitation the rights
+to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
+copies of the Software, and to permit persons to whom the Software is
+furnished to do so, subject to the following conditions:
+
+The above copyright notice and this permission notice shall be included in
+all copies or substantial portions of the Software.
+
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR
+IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY,
+FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE
+AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER
+LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
+OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN
+THE SOFTWARE.
+
+]]
+
+if type(DEBUG) ~= "number" then DEBUG = 0 end
+
+-- load framework
+printInfo("")
+printInfo("# DEBUG                        = " .. DEBUG)
+printInfo("#")
+
+device     = require("cocos.framework.device")
+display    = require("cocos.framework.display")
+audio      = require("cocos.framework.audio")
+transition = require("cocos.framework.transition")
+
+require("cocos.framework.extends.NodeEx")
+require("cocos.framework.extends.SpriteEx")
+require("cocos.framework.extends.LayerEx")
+require("cocos.framework.extends.MenuEx")
+
+if ccui then
+    require("cocos.framework.extends.UIWidget")
+    require("cocos.framework.extends.UICheckBox")
+    require("cocos.framework.extends.UIEditBox")
+    require("cocos.framework.extends.UIListView")
+    require("cocos.framework.extends.UIPageView")
+    require("cocos.framework.extends.UIScrollView")
+    require("cocos.framework.extends.UISlider")
+    require("cocos.framework.extends.UITextField")
+end
+
+require("cocos.framework.package_support")
+
+-- register the build-in packages
+cc.register("event", require("cocos.framework.components.event"))
+
+-- export global variable
+local __g = _G
+cc.exports = {}
+setmetatable(cc.exports, {
+    __newindex = function(_, name, value)
+        rawset(__g, name, value)
+    end,
+
+    __index = function(_, name)
+        return rawget(__g, name)
+    end
+})
+
+-- disable create unexpected global variable
+function cc.disable_global()
+    setmetatable(__g, {
+        __newindex = function(_, name, value)
+            error(string.format("USE \" cc.exports.%s = value \" INSTEAD OF SET GLOBAL VARIABLE", name), 0)
+        end
+    })
+end
+
+if CC_DISABLE_GLOBAL then
+    cc.disable_global()
+end

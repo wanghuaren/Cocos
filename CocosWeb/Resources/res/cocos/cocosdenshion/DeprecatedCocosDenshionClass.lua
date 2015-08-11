@@ -1,1 +1,19 @@
-ιζ ξιμ ½½ γγ®ΣινπμεΑυδιοΕξηιξε τθεξ    ςετυςξεξδ­­ Τθισ ισ τθε ΔεπςεγατεδΓογοσΔεξσθιοξΓμασσΔεπςεγατεδΓογοσΔεξσθιοξΓμασσ ½ ϋύ ος ΔεπςεγατεδΓογοσΔεξσθιοξΓμασσ­­τιπμογαμ ζυξγτιοξ δεπςεγατεδΤιπ¨ομδίξανε¬ξεχίξανε©    πςιξτ¨Άάξªªªªªªªªªª άξΆ®®ομδίξανε®®Ά χασ δεπςεγατεδ πμεασε υσε Ά®® ξεχίξανε ®® Ά ιξστεαδ®άξªªªªªªªªªªΆ©εξδ­­ΣινπμεΑυδιοΕξηιξε γμασσ χιμμ βε Δεπςεγατεδ¬βεηιξζυξγτιοξ ΔεπςεγατεδΓογοσΔεξσθιοξΓμασσ®ΣινπμεΑυδιοΕξηιξε¨©    δεπςεγατεδΤιπ¨ΆΣινπμεΑυδιοΕξηιξεΆ¬Άγγ®ΣινπμεΑυδιοΕξηιξεΆ©    ςετυςξ γγ®ΣινπμεΑυδιοΕξηιξεεξδίΗΫΆΣινπμεΑυδιοΕξηιξεΆέ ½ ΔεπςεγατεδΓογοσΔεξσθιοξΓμασσ®ΣινπμεΑυδιοΕξηιξε¨©­­ΣινπμεΑυδιοΕξηιξε γμασσ χιμμ βε Δεπςεγατεδ¬εξδ
+if nil == cc.SimpleAudioEngine then
+    return
+end
+-- This is the DeprecatedCocosDenshionClass
+
+DeprecatedCocosDenshionClass = {} or DeprecatedCocosDenshionClass
+
+--tip
+local function deprecatedTip(old_name,new_name)
+    print("\n********** \n"..old_name.." was deprecated please use ".. new_name .. " instead.\n**********")
+end
+
+--SimpleAudioEngine class will be Deprecated,begin
+function DeprecatedCocosDenshionClass.SimpleAudioEngine()
+    deprecatedTip("SimpleAudioEngine","cc.SimpleAudioEngine")
+    return cc.SimpleAudioEngine
+end
+_G["SimpleAudioEngine"] = DeprecatedCocosDenshionClass.SimpleAudioEngine()
+--SimpleAudioEngine class will be Deprecated,end

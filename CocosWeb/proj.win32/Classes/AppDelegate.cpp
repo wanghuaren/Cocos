@@ -69,7 +69,7 @@ bool AppDelegate::applicationDidFinishLaunching() {
 			DeleteMenu(hmenu, SC_CLOSE, MF_BYCOMMAND);
 		}
 	}
-	//pEngine->executeString("print=release_print");
+	pEngine->executeString("print=release_print");
 	FileUtils::getInstance()->addSearchPath("../../Resources/res");
 #else
 	FileUtils::getInstance()->addSearchPath("res");

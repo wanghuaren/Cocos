@@ -1,1 +1,27 @@
-ιζ ξιμ ½½ γγ®ΨΝΜΘττπÒερυεστ τθεξ    ςετυςξεξδ­­τιπμογαμ ζυξγτιοξ δεπςεγατεδΤιπ¨ομδίξανε¬ξεχίξανε©    πςιξτ¨Άάξªªªªªªªªªª άξΆ®®ομδίξανε®®Ά χασ δεπςεγατεδ πμεασε υσε Ά®® ξεχίξανε ®® Ά ιξστεαδ®άξªªªªªªªªªªΆ©εξδ­­ζυξγτιοξσ οζ ΧεβΣογλετ χιμμ βε δεπςεγατεδ βεηιξμογαμ ταςηετΠματζοςν ½ ΓΓΑππμιγατιοξΊηετΙξσταξγε¨©ΊηετΤαςηετΠματζοςν¨©ιζ ¨λΤαςηετΙπθοξε ½½ ταςηετΠματζοςν© ος ¨λΤαςηετΙπαδ ½½ ταςηετΠματζοςν© ος ¨λΤαςηετΑξδςοιδ ½½ ταςηετΠματζοςν© ος ¨λΤαςηετΧιξδοχσ ½½ ταςηετΠματζοςν© τθεξ    μογαμ ΧεβΣογλετΔεπςεγατεδ ½ ϋ ύ    ζυξγτιοξ ΧεβΣογλετΔεπςεγατεδ®σεξδΤεψτΝση¨σεμζ¬ στςιξη©        δεπςεγατεδΤιπ¨ΆΧεβΣογλετΊσεξδΤεψτΝσηΆ¬ΆΧεβΣογλετΊσεξδΣτςιξηΆ©        ςετυςξ σεμζΊσεξδΣτςιξη¨στςιξη©    εξδ    ΧεβΣογλετ®σεξδΤεψτΝση ½ ΧεβΣογλετΔεπςεγατεδ®σεξδΤεψτΝση    ζυξγτιοξ ΧεβΣογλετΔεπςεγατεδ®σεξδΒιξαςωΝση¨σεμζ¬ ταβμε¬ταβμεσιϊε©        δεπςεγατεδΤιπ¨ΆΧεβΣογλετΊσεξδΒιξαςωΝσηΆ¬ΆΧεβΣογλετΊσεξδΣτςιξηΆ©        στςιξη®γθας¨υξπαγλ¨ταβμε©©        ςετυςξ σεμζΊσεξδΣτςιξη¨στςιξη®γθας¨υξπαγλ¨ταβμε©©©    εξδ    ΧεβΣογλετ®σεξδΒιξαςωΝση ½ ΧεβΣογλετΔεπςεγατεδ®σεξδΒιξαςωΝσηεξδ­­ζυξγτιοξσ οζ ΧεβΣογλετ χιμμ βε δεπςεγατεδ εξδ
+if nil == cc.XMLHttpRequest then
+    return
+end
+
+--tip
+local function deprecatedTip(old_name,new_name)
+    print("\n********** \n"..old_name.." was deprecated please use ".. new_name .. " instead.\n**********")
+end
+
+--functions of WebSocket will be deprecated begin
+local targetPlatform = CCApplication:getInstance():getTargetPlatform()
+if (kTargetIphone == targetPlatform) or (kTargetIpad == targetPlatform) or (kTargetAndroid == targetPlatform) or (kTargetWindows == targetPlatform) then
+    local WebSocketDeprecated = { }
+    function WebSocketDeprecated.sendTextMsg(self, string)
+        deprecatedTip("WebSocket:sendTextMsg","WebSocket:sendString")
+        return self:sendString(string)
+    end
+    WebSocket.sendTextMsg = WebSocketDeprecated.sendTextMsg
+
+    function WebSocketDeprecated.sendBinaryMsg(self, table,tablesize)
+        deprecatedTip("WebSocket:sendBinaryMsg","WebSocket:sendString")
+        string.char(unpack(table))
+        return self:sendString(string.char(unpack(table)))
+    end
+    WebSocket.sendBinaryMsg = WebSocketDeprecated.sendBinaryMsg
+end
+--functions of WebSocket will be deprecated end

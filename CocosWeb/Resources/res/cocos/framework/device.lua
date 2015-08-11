@@ -1,1 +1,107 @@
-­­ΫΫΓοπωςιηθτ ¨γ© ²°±±­²°±΄ γθυλοξη­ιξγ®γονΠεςνισσιοξ ισ θεςεβω ηςαξτεδ¬ ζςεε οζ γθαςηε¬ το αξω πεςσοξ οβταιξιξη α γοπωοζ τθισ σοζτχαςε αξδ ασσογιατεδ δογυνεξτατιοξ ζιμεσ ¨τθε ΆΣοζτχαςεΆ©¬ το δεαμιξ τθε Σοζτχαςε χιτθουτ ςεστςιγτιοξ¬ ιξγμυδιξη χιτθουτ μινιτατιοξ τθε ςιηθτστο υσε¬ γοπω¬ νοδιζω¬ νεςηε¬ πυβμισθ¬ διστςιβυτε¬ συβμιγεξσε¬ αξδ―ος σεμμγοπιεσ οζ τθε Σοζτχαςε¬ αξδ το πεςνιτ πεςσοξσ το χθον τθε Σοζτχαςε ισζυςξισθεδ το δο σο¬ συβκεγτ το τθε ζομμοχιξη γοξδιτιοξσΊΤθε αβοφε γοπωςιηθτ ξοτιγε αξδ τθισ πεςνισσιοξ ξοτιγε σθαμμ βε ιξγμυδεδ ιξαμμ γοπιεσ ος συβσταξτιαμ ποςτιοξσ οζ τθε Σοζτχαςε®ΤΘΕ ΣΟΖΤΧΑÒΕ ΙΣ ΠÒΟΦΙΔΕΔ ΆΑΣ ΙΣΆ¬ ΧΙΤΘΟΥΤ ΧΑÒÒΑΞΤΩ ΟΖ ΑΞΩ ΛΙΞΔ¬ ΕΨΠÒΕΣΣ ΟÒΙΝΠΜΙΕΔ¬ ΙΞΓΜΥΔΙΞΗ ΒΥΤ ΞΟΤ ΜΙΝΙΤΕΔ ΤΟ ΤΘΕ ΧΑÒÒΑΞΤΙΕΣ ΟΖ ΝΕÒΓΘΑΞΤΑΒΙΜΙΤΩ¬ΖΙΤΞΕΣΣ ΖΟÒ Α ΠΑÒΤΙΓΥΜΑÒ ΠΥÒΠΟΣΕ ΑΞΔ ΞΟΞΙΞΖÒΙΞΗΕΝΕΞΤ® ΙΞ ΞΟ ΕΦΕΞΤ ΣΘΑΜΜ ΤΘΕΑΥΤΘΟÒΣ ΟÒ ΓΟΠΩÒΙΗΘΤ ΘΟΜΔΕÒΣ ΒΕ ΜΙΑΒΜΕ ΖΟÒ ΑΞΩ ΓΜΑΙΝ¬ ΔΑΝΑΗΕΣ ΟÒ ΟΤΘΕÒΜΙΑΒΙΜΙΤΩ¬ ΧΘΕΤΘΕÒ ΙΞ ΑΞ ΑΓΤΙΟΞ ΟΖ ΓΟΞΤÒΑΓΤ¬ ΤΟÒΤ ΟÒ ΟΤΘΕÒΧΙΣΕ¬ ΑÒΙΣΙΞΗ ΖÒΟΝ¬ΟΥΤ ΟΖ ΟÒ ΙΞ ΓΟΞΞΕΓΤΙΟΞ ΧΙΤΘ ΤΘΕ ΣΟΖΤΧΑÒΕ ΟÒ ΤΘΕ ΥΣΕ ΟÒ ΟΤΘΕÒ ΔΕΑΜΙΞΗΣ ΙΞΤΘΕ ΣΟΖΤΧΑÒΕ®έέμογαμ δεφιγε ½ ϋύδεφιγε®πματζοςν    ½ ΆυξλξοχξΆδεφιγε®νοδεμ       ½ ΆυξλξοχξΆμογαμ αππ ½ γγ®ΑππμιγατιοξΊηετΙξσταξγε¨©μογαμ ταςηετ ½ αππΊηετΤαςηετΠματζοςν¨©ιζ ταςηετ ½½ γγ®ΠΜΑΤΖΟÒΝίΟΣίΧΙΞΔΟΧΣ τθεξ    δεφιγε®πματζοςν ½ ΆχιξδοχσΆεμσειζ ταςηετ ½½ γγ®ΠΜΑΤΖΟÒΝίΟΣίΝΑΓ τθεξ    δεφιγε®πματζοςν ½ ΆναγΆεμσειζ ταςηετ ½½ γγ®ΠΜΑΤΖΟÒΝίΟΣίΑΞΔÒΟΙΔ τθεξ    δεφιγε®πματζοςν ½ ΆαξδςοιδΆεμσειζ ταςηετ ½½ γγ®ΠΜΑΤΖΟÒΝίΟΣίΙΠΘΟΞΕ ος ταςηετ ½½ γγ®ΠΜΑΤΖΟÒΝίΟΣίΙΠΑΔ τθεξ    δεφιγε®πματζοςν ½ ΆιοσΆ    μογαμ διςεγτος ½ γγ®ΔιςεγτοςΊηετΙξσταξγε¨©    μογαμ φιεχ ½ διςεγτοςΊηετΟπεξΗΜΦιεχ¨©    μογαμ ζςανεσιϊε ½ φιεχΊηετΖςανεΣιϊε¨©    μογαμ χ¬ θ ½ ζςανεσιϊε®χιδτθ¬ ζςανεσιϊε®θειηθτ    ιζ χ ½½ ¶΄° αξδ θ ½½ Ή¶° τθεξ        δεφιγε®νοδεμ ½ Άιπθοξε ΄Ά    εμσειζ χ ½½ ¶΄° αξδ θ ½½ ±±³¶ τθεξ        δεφιγε®νοδεμ ½ Άιπθοξε µΆ    εμσειζ χ ½½ ·µ° αξδ θ ½½ ±³³΄ τθεξ        δεφιγε®νοδεμ ½ Άιπθοξε ¶Ά    εμσειζ χ ½½ ±²΄² αξδ θ ½½ ²²°Έ τθεξ        δεφιγε®νοδεμ ½ Άιπθοξε ¶ πμυσΆ    εμσειζ χ ½½ ·¶Έ αξδ θ ½½ ±°²΄ τθεξ        δεφιγε®νοδεμ ½ ΆιπαδΆ    εμσειζ χ ½½ ±µ³¶ αξδ θ ½½ ²°΄Έ τθεξ        δεφιγε®νοδεμ ½ Άιπαδ ςετιξαΆ    εξδεμσειζ ταςηετ ½½ γγ®ΠΜΑΤΖΟÒΝίΟΣίΧΙΞÒΤ τθεξ    δεφιγε®πματζοςν ½ ΆχιξςτΆεμσειζ ταςηετ ½½ γγ®ΠΜΑΤΖΟÒΝίΟΣίΧΠΈ τθεξ    δεφιγε®πματζοςν ½ ΆχπΈΆεξδμογαμ μαξηυαηεί ½ αππΊηετΓυςςεξτΜαξηυαηε¨©ιζ μαξηυαηεί ½½ γγ®ΜΑΞΗΥΑΗΕίΓΘΙΞΕΣΕ τθεξ    μαξηυαηεί ½ ΆγξΆεμσειζ μαξηυαηεί ½½ γγ®ΜΑΞΗΥΑΗΕίΖÒΕΞΓΘ τθεξ    μαξηυαηεί ½ ΆζςΆεμσειζ μαξηυαηεί ½½ γγ®ΜΑΞΗΥΑΗΕίΙΤΑΜΙΑΞ τθεξ    μαξηυαηεί ½ ΆιτΆεμσειζ μαξηυαηεί ½½ γγ®ΜΑΞΗΥΑΗΕίΗΕÒΝΑΞ τθεξ    μαξηυαηεί ½ ΆηςΆεμσειζ μαξηυαηεί ½½ γγ®ΜΑΞΗΥΑΗΕίΣΠΑΞΙΣΘ τθεξ    μαξηυαηεί ½ ΆσπΆεμσειζ μαξηυαηεί ½½ γγ®ΜΑΞΗΥΑΗΕίÒΥΣΣΙΑΞ τθεξ    μαξηυαηεί ½ ΆςυΆεμσειζ μαξηυαηεί ½½ γγ®ΜΑΞΗΥΑΗΕίΛΟÒΕΑΞ τθεξ    μαξηυαηεί ½ ΆλςΆεμσειζ μαξηυαηεί ½½ γγ®ΜΑΞΗΥΑΗΕίΚΑΠΑΞΕΣΕ τθεξ    μαξηυαηεί ½ ΆκπΆεμσειζ μαξηυαηεί ½½ γγ®ΜΑΞΗΥΑΗΕίΘΥΞΗΑÒΙΑΞ τθεξ    μαξηυαηεί ½ ΆθυΆεμσειζ μαξηυαηεί ½½ γγ®ΜΑΞΗΥΑΗΕίΠΟÒΤΥΗΥΕΣΕ τθεξ    μαξηυαηεί ½ ΆπτΆεμσειζ μαξηυαηεί ½½ γγ®ΜΑΞΗΥΑΗΕίΑÒΑΒΙΓ τθεξ    μαξηυαηεί ½ ΆαςΆεμσε    μαξηυαηεί ½ ΆεξΆεξδδεφιγε®μαξηυαηε ½ μαξηυαηείδεφιγε®χςιταβμεΠατθ ½ γγ®ΖιμεΥτιμσΊηετΙξσταξγε¨©ΊηετΧςιταβμεΠατθ¨©δεφιγε®διςεγτοςωΣεπαςατος ½ Ά―Άδεφιγε®πατθΣεπαςατος ½ ΆΊΆιζ δεφιγε®πματζοςν ½½ ΆχιξδοχσΆ τθεξ    δεφιγε®διςεγτοςωΣεπαςατος ½ ΆάάΆ    δεφιγε®πατθΣεπαςατος ½ Ά»ΆεξδπςιξτΙξζο¨Ά£ δεφιγε®πματζοςν              ½ Ά ®® δεφιγε®πματζοςν©πςιξτΙξζο¨Ά£ δεφιγε®νοδεμ                 ½ Ά ®® δεφιγε®νοδεμ©πςιξτΙξζο¨Ά£ δεφιγε®μαξηυαηε              ½ Ά ®® δεφιγε®μαξηυαηε©πςιξτΙξζο¨Ά£ δεφιγε®χςιταβμεΠατθ          ½ Ά ®® δεφιγε®χςιταβμεΠατθ©πςιξτΙξζο¨Ά£ δεφιγε®διςεγτοςωΣεπαςατος    ½ Ά ®® δεφιγε®διςεγτοςωΣεπαςατος©πςιξτΙξζο¨Ά£ δεφιγε®πατθΣεπαςατος         ½ Ά ®® δεφιγε®πατθΣεπαςατος©πςιξτΙξζο¨Ά£Ά©ςετυςξ δεφιγε
+--[[
+
+Copyright (c) 2011-2014 chukong-inc.com
+
+Permission is hereby granted, free of charge, to any person obtaining a copy
+of this software and associated documentation files (the "Software"), to deal
+in the Software without restriction, including without limitation the rights
+to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
+copies of the Software, and to permit persons to whom the Software is
+furnished to do so, subject to the following conditions:
+
+The above copyright notice and this permission notice shall be included in
+all copies or substantial portions of the Software.
+
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR
+IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY,
+FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE
+AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER
+LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
+OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN
+THE SOFTWARE.
+
+]]
+
+local device = {}
+
+device.platform    = "unknown"
+device.model       = "unknown"
+
+local app = cc.Application:getInstance()
+local target = app:getTargetPlatform()
+if target == cc.PLATFORM_OS_WINDOWS then
+    device.platform = "windows"
+elseif target == cc.PLATFORM_OS_MAC then
+    device.platform = "mac"
+elseif target == cc.PLATFORM_OS_ANDROID then
+    device.platform = "android"
+elseif target == cc.PLATFORM_OS_IPHONE or target == cc.PLATFORM_OS_IPAD then
+    device.platform = "ios"
+    local director = cc.Director:getInstance()
+    local view = director:getOpenGLView()
+    local framesize = view:getFrameSize()
+    local w, h = framesize.width, framesize.height
+    if w == 640 and h == 960 then
+        device.model = "iphone 4"
+    elseif w == 640 and h == 1136 then
+        device.model = "iphone 5"
+    elseif w == 750 and h == 1334 then
+        device.model = "iphone 6"
+    elseif w == 1242 and h == 2208 then
+        device.model = "iphone 6 plus"
+    elseif w == 768 and h == 1024 then
+        device.model = "ipad"
+    elseif w == 1536 and h == 2048 then
+        device.model = "ipad retina"
+    end
+elseif target == cc.PLATFORM_OS_WINRT then
+    device.platform = "winrt"
+elseif target == cc.PLATFORM_OS_WP8 then
+    device.platform = "wp8"
+end
+
+local language_ = app:getCurrentLanguage()
+if language_ == cc.LANGUAGE_CHINESE then
+    language_ = "cn"
+elseif language_ == cc.LANGUAGE_FRENCH then
+    language_ = "fr"
+elseif language_ == cc.LANGUAGE_ITALIAN then
+    language_ = "it"
+elseif language_ == cc.LANGUAGE_GERMAN then
+    language_ = "gr"
+elseif language_ == cc.LANGUAGE_SPANISH then
+    language_ = "sp"
+elseif language_ == cc.LANGUAGE_RUSSIAN then
+    language_ = "ru"
+elseif language_ == cc.LANGUAGE_KOREAN then
+    language_ = "kr"
+elseif language_ == cc.LANGUAGE_JAPANESE then
+    language_ = "jp"
+elseif language_ == cc.LANGUAGE_HUNGARIAN then
+    language_ = "hu"
+elseif language_ == cc.LANGUAGE_PORTUGUESE then
+    language_ = "pt"
+elseif language_ == cc.LANGUAGE_ARABIC then
+    language_ = "ar"
+else
+    language_ = "en"
+end
+
+device.language = language_
+device.writablePath = cc.FileUtils:getInstance():getWritablePath()
+device.directorySeparator = "/"
+device.pathSeparator = ":"
+if device.platform == "windows" then
+    device.directorySeparator = "\\"
+    device.pathSeparator = ";"
+end
+
+printInfo("# device.platform              = " .. device.platform)
+printInfo("# device.model                 = " .. device.model)
+printInfo("# device.language              = " .. device.language)
+printInfo("# device.writablePath          = " .. device.writablePath)
+printInfo("# device.directorySeparator    = " .. device.directorySeparator)
+printInfo("# device.pathSeparator         = " .. device.pathSeparator)
+printInfo("#")
+
+return device

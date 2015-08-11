@@ -28,12 +28,13 @@ function container.CreateCustomNode()
 		size.height=70;
 		rootNode:setFontSize(size.height)
 		rootNode:setTextColor(cc.c4b(51,153,204,255))
+		size.height=size.height+10
 		rootNode:setContentSize(size)
 		
 		size.width=size.width+4
-		size.height=size.height+4
+		size.height=size.height
 		img:setContentSize(size)
-		img:setPosition(-2,size.height-2)
+		img:setPosition(-2,size.height-10)
 	end
 	
 	local function sceneEventHandler(eventType)

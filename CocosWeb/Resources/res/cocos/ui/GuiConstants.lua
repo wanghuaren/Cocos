@@ -1,1 +1,195 @@
-ιζ ξιμ ½½ γγυι τθεξ    ςετυςξεξδγγυι®ΒςιηθτΣτωμε ½ϋ    ξοξε ½ ­±¬    ξοςναμ ½ °¬    θιηθμιηθτ ½ ±¬ύγγυι®ΤεψτυςεÒεσΤωπε ½ϋ    μογαμΤωπε ½ °¬    πμιστΤωπε ½ ±¬ύγγυι®ΤουγθΕφεξτΤωπε ½ϋ    βεηαξ ½ °¬    νοφεδ ½ ±¬    εξδεδ ½ ²¬    γαξγεμεδ ½ ³¬ύγγυι®ΣιϊεΤωπε ½ϋ    αβσομυτε ½ °¬    πεςγεξτ ½ ±¬ύγγυι®ΠοσιτιοξΤωπε ½ ϋ    αβσομυτε ½ °¬    πεςγεξτ ½ ±¬ύγγυι®ΓθεγλΒοψΕφεξτΤωπε ½ϋ    σεμεγτεδ ½ °¬    υξσεμεγτεδ ½ ±¬ύγγυι®ΤεψτΖιμεδΕφεξτΤωπε ½ϋ    ατταγθίχιτθίινε ½ °¬    δεταγθίχιτθίινε ½ ±¬    ιξσεςτίτεψτ ½ ²¬    δεμετείβαγλχαςδ ½ ³¬ύγγυι®ΜαωουτΒαγλΗςουξδΓομοςΤωπε ½ϋ    ξοξε ½ °¬    σομιδ ½ ±¬    ηςαδιεξτ ½ ²¬ύγγυι®ΜαωουτΤωπε ½ϋ    ΑΒΣΟΜΥΤΕ ½ °¬    ΦΕÒΤΙΓΑΜ ½ ±¬    ΘΟÒΙΪΟΞΤΑΜ ½ ²¬    ÒΕΜΑΤΙΦΕ ½ ³¬ύγγυι®ΜαωουτΠαςανετεςΤωπε ½ϋ    ξοξε ½ °¬    μιξεας ½ ±¬    ςεματιφε ½ ²¬ύγγυι®ΜιξεαςΗςαφιτω ½ϋ    ξοξε ½ °¬    μεζτ ½ ±¬    τοπ ½ ²¬    ςιηθτ ½ ³¬    βοττον ½ ΄¬    γεξτεςΦεςτιγαμ ½ µ¬    γεξτεςΘοςιϊοξταμ ½ ¶¬ύγγυι®ÒεματιφεΑμιηξ ½ϋ    αμιηξΞοξε ½ °¬    αμιηξΠαςεξτΤοπΜεζτ ½ ±¬    αμιηξΠαςεξτΤοπΓεξτεςΘοςιϊοξταμ ½ ²¬    αμιηξΠαςεξτΤοπÒιηθτ ½ ³¬    αμιηξΠαςεξτΜεζτΓεξτεςΦεςτιγαμ ½ ΄¬    γεξτεςΙξΠαςεξτ ½ µ¬    αμιηξΠαςεξτÒιηθτΓεξτεςΦεςτιγαμ ½ ¶¬    αμιηξΠαςεξτΜεζτΒοττον ½ ·¬    αμιηξΠαςεξτΒοττονΓεξτεςΘοςιϊοξταμ ½ Έ¬    αμιηξΠαςεξτÒιηθτΒοττον ½ Ή¬    μογατιοξΑβοφεΜεζτΑμιηξ ½ ±°¬    μογατιοξΑβοφεΓεξτες ½ ±±¬    μογατιοξΑβοφεÒιηθτΑμιηξ ½ ±²¬    μογατιοξΜεζτΟζΤοπΑμιηξ ½ ±³¬    μογατιοξΜεζτΟζΓεξτες ½ ±΄¬    μογατιοξΜεζτΟζΒοττονΑμιηξ ½ ±µ¬    μογατιοξÒιηθτΟζΤοπΑμιηξ ½ ±¶¬    μογατιοξÒιηθτΟζΓεξτες ½ ±·¬    μογατιοξÒιηθτΟζΒοττονΑμιηξ ½ ±Έ¬    μογατιοξΒεμοχΜεζτΑμιηξ ½ ±Ή¬    μογατιοξΒεμοχΓεξτες ½ ²°¬    μογατιοξΒεμοχÒιηθτΑμιηξ ½ ²±¬ύγγυι®ΣμιδεςΕφεξτΤωπε ½ ϋπεςγεξτΓθαξηεδ ½ °ύγγυι®ΜοαδιξηΒαςΔιςεγτιοξ ½ ϋ ΜΕΖΤ ½ °¬ ÒΙΗΘΤ ½ ±ύγγυι®ΣγςομμΦιεχΔις ½ ϋ    ξοξε ½ °¬    φεςτιγαμ ½ ±¬    θοςιϊοξταμ ½ ²¬    βοτθ ½ ³¬ύγγυι®ΣγςομμΦιεχΝοφεΔις ½ ϋ    ξοξε ½ °¬    υπ ½ ±¬    δοχξ ½ ²¬    μεζτ ½ ³¬    ςιηθτ ½ ΄¬ύγγυι®ΣγςομμφιεχΕφεξτΤωπε ½ ϋ    σγςομμΤοΤοπ ½  °¬    σγςομμΤοΒοττον ½  ±¬    σγςομμΤοΜεζτ ½ ²¬    σγςομμΤοÒιηθτ ½ ³¬    σγςομμιξη ½ ΄¬    βουξγεΤοπ ½ µ¬    βουξγεΒοττον ½ ¶¬    βουξγεΜεζτ ½ ·¬    βουξγεÒιηθτ ½ Έ¬ύγγυι®ΜιστΦιεχΔιςεγτιοξ ½ ϋ    ξοξε ½ °¬    φεςτιγαμ ½ ±¬    θοςιϊοξταμ ½ ²¬ύγγυι®ΜιστΦιεχΝοφεΔιςεγτιοξ ½ ϋ    ξοξε ½ °¬    υπ ½ ±¬    δοχξ ½ ²¬    μεζτ ½ ³¬    ςιηθτ ½ ΄¬ύγγυι®ΜιστΦιεχΕφεξτΤωπε ½ ϋ    ΟΞΣΕΜΕΓΤΕΔΙΤΕΝίΣΤΑÒΤ ½ °¬    ΟΞΣΕΜΕΓΤΕΔΙΤΕΝίΕΞΔ   ½ ±¬ύγγυι®ΠαηεΦιεχΕφεξτΤωπε ½ ϋ   τυςξιξη ½ °¬ύγγυι®ΠΦΤουγθΔις ½ ϋ    τουγθΜεζτ ½ °¬    τουγθÒιηθτ ½ ±¬ύγγυι®ΜιστΦιεχΗςαφιτω ½ ϋ    μεζτ ½ °¬    ςιηθτ ½ ±¬    γεξτεςΘοςιϊοξταμ ½ ²¬    τοπ ½ ³¬    βοττον ½ ΄ ¬    γεξτεςΦεςτιγαμ ½ µ¬ύγγυι®ΤεψτΤωπε ½ ϋ    ΣΩΣΤΕΝ ½ °¬    ΤΤΖ    ½ ±¬ύγγυι®ΜαωουτΓονποξεξτ®ΘοςιϊοξταμΕδηε ½ ϋ    Ξοξε ½ °¬    Μεζτ ½ ±¬    Òιηθτ ½ ²¬    Γεξτες ½ ³¬ύγγυι®ΜαωουτΓονποξεξτ®ΦεςτιγαμΕδηε ½ ϋ    Ξοξε ½ °¬    Βοττον ½ ±¬    Τοπ ½ ²¬    Γεξτες ½ ³¬ύ
+if nil == ccui then
+    return
+end
+
+ccui.BrightStyle =
+{
+    none = -1,
+    normal = 0,
+    highlight = 1,
+}
+
+ccui.TextureResType =
+{
+    localType = 0,
+    plistType = 1,
+}
+
+ccui.TouchEventType =
+{
+    began = 0,
+    moved = 1,
+    ended = 2,
+    canceled = 3,
+}
+
+ccui.SizeType =
+{
+    absolute = 0,
+    percent = 1,
+}
+
+ccui.PositionType = {
+    absolute = 0,
+    percent = 1,
+}
+
+ccui.CheckBoxEventType =
+{
+    selected = 0,
+    unselected = 1,
+}
+
+ccui.TextFiledEventType =
+{
+    attach_with_ime = 0,
+    detach_with_ime = 1,
+    insert_text = 2,
+    delete_backward = 3,
+}
+
+ccui.LayoutBackGroundColorType =
+{
+    none = 0,
+    solid = 1,
+    gradient = 2,
+}
+
+ccui.LayoutType =
+{
+    ABSOLUTE = 0,
+    VERTICAL = 1,
+    HORIZONTAL = 2,
+    RELATIVE = 3,
+}
+
+ccui.LayoutParameterType =
+{
+    none = 0,
+    linear = 1,
+    relative = 2,
+}
+
+ccui.LinearGravity =
+{
+    none = 0,
+    left = 1,
+    top = 2,
+    right = 3,
+    bottom = 4,
+    centerVertical = 5,
+    centerHorizontal = 6,
+}
+
+ccui.RelativeAlign =
+{
+    alignNone = 0,
+    alignParentTopLeft = 1,
+    alignParentTopCenterHorizontal = 2,
+    alignParentTopRight = 3,
+    alignParentLeftCenterVertical = 4,
+    centerInParent = 5,
+    alignParentRightCenterVertical = 6,
+    alignParentLeftBottom = 7,
+    alignParentBottomCenterHorizontal = 8,
+    alignParentRightBottom = 9,
+    locationAboveLeftAlign = 10,
+    locationAboveCenter = 11,
+    locationAboveRightAlign = 12,
+    locationLeftOfTopAlign = 13,
+    locationLeftOfCenter = 14,
+    locationLeftOfBottomAlign = 15,
+    locationRightOfTopAlign = 16,
+    locationRightOfCenter = 17,
+    locationRightOfBottomAlign = 18,
+    locationBelowLeftAlign = 19,
+    locationBelowCenter = 20,
+    locationBelowRightAlign = 21,
+}
+
+ccui.SliderEventType = {percentChanged = 0}
+
+ccui.LoadingBarDirection = { LEFT = 0, RIGHT = 1}
+
+ccui.ScrollViewDir = {
+    none = 0,
+    vertical = 1,
+    horizontal = 2,
+    both = 3,
+}
+
+ccui.ScrollViewMoveDir = {
+    none = 0,
+    up = 1,
+    down = 2,
+    left = 3,
+    right = 4,
+}
+
+ccui.ScrollviewEventType = {
+    scrollToTop =  0,
+    scrollToBottom =  1,
+    scrollToLeft = 2,
+    scrollToRight = 3,
+    scrolling = 4,
+    bounceTop = 5,
+    bounceBottom = 6,
+    bounceLeft = 7,
+    bounceRight = 8,
+}
+
+ccui.ListViewDirection = {
+    none = 0,
+    vertical = 1,
+    horizontal = 2,
+}
+
+ccui.ListViewMoveDirection = {
+    none = 0,
+    up = 1,
+    down = 2,
+    left = 3,
+    right = 4,
+}
+
+ccui.ListViewEventType = {
+    ONSELECTEDITEM_START = 0,
+    ONSELECTEDITEM_END   = 1,
+}
+
+ccui.PageViewEventType = {
+   turning = 0,
+}
+
+ccui.PVTouchDir = {
+    touchLeft = 0,
+    touchRight = 1,
+}
+
+ccui.ListViewGravity = {
+    left = 0,
+    right = 1,
+    centerHorizontal = 2,
+    top = 3,
+    bottom = 4 ,
+    centerVertical = 5,
+}
+
+ccui.TextType = {
+    SYSTEM = 0,
+    TTF    = 1,
+}
+
+ccui.LayoutComponent.HorizontalEdge = {
+    None = 0,
+    Left = 1,
+    Right = 2,
+    Center = 3,
+}
+
+ccui.LayoutComponent.VerticalEdge = {
+    None = 0,
+    Bottom = 1,
+    Top = 2,
+    Center = 3,
+}

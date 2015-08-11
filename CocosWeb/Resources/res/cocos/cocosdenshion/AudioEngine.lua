@@ -1,1 +1,111 @@
-ιζ ξιμ ½½ γγ®ΣινπμεΑυδιοΕξηιξε τθεξ    ςετυςξεξδ­­Εξγαπσυματε ΣινπμεΑυδιοΕξηιξε το ΑυδιοΕξηιξε¬Πμαω νυσιγ αξδ σουξδ εζζεγτσ®μογαμ Ν ½ ϋύζυξγτιοξ Ν®στοπΑμμΕζζεγτσ¨©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊστοπΑμμΕζζεγτσ¨©εξδζυξγτιοξ Ν®ηετΝυσιγΦομυνε¨©    ςετυςξ γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊηετΝυσιγΦομυνε¨©εξδζυξγτιοξ Ν®ισΝυσιγΠμαωιξη¨©    ςετυςξ γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊισΝυσιγΠμαωιξη¨©εξδζυξγτιοξ Ν®ηετΕζζεγτσΦομυνε¨©    ςετυςξ γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊηετΕζζεγτσΦομυνε¨©εξδζυξγτιοξ Ν®σετΝυσιγΦομυνε¨φομυνε©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊσετΝυσιγΦομυνε¨φομυνε©εξδζυξγτιοξ Ν®στοπΕζζεγτ¨θαξδμε©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊστοπΕζζεγτ¨θαξδμε©εξδζυξγτιοξ Ν®στοπΝυσιγ¨ισÒεμεασεΔατα©    μογαμ ςεμεασεΔαταΦαμυε ½ ζαμσε    ιζ ξιμ ώ½ ισÒεμεασεΔατα τθεξ        ςεμεασεΔαταΦαμυε ½ ισÒεμεασεΔατα    εξδ    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊστοπΝυσιγ¨ςεμεασεΔαταΦαμυε©εξδζυξγτιοξ Ν®πμαωΝυσιγ¨ζιμεξανε¬ ισΜοοπ©    μογαμ μοοπΦαμυε ½ ζαμσε    ιζ ξιμ ώ½ ισΜοοπ τθεξ        μοοπΦαμυε ½ ισΜοοπ    εξδ    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊπμαωΝυσιγ¨ζιμεξανε¬ μοοπΦαμυε©εξδζυξγτιοξ Ν®παυσεΑμμΕζζεγτσ¨©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊπαυσεΑμμΕζζεγτσ¨©εξδζυξγτιοξ Ν®πςεμοαδΝυσιγ¨ζιμεξανε©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊπςεμοαδΝυσιγ¨ζιμεξανε©εξδζυξγτιοξ Ν®ςεσυνεΝυσιγ¨©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊςεσυνεΝυσιγ¨©εξδζυξγτιοξ Ν®πμαωΕζζεγτ¨ζιμεξανε¬ ισΜοοπ©    μογαμ μοοπΦαμυε ½ ζαμσε    ιζ ξιμ ώ½ ισΜοοπ τθεξ        μοοπΦαμυε ½ ισΜοοπ    εξδ    ςετυςξ γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊπμαωΕζζεγτ¨ζιμεξανε¬ μοοπΦαμυε©εξδζυξγτιοξ Ν®ςεχιξδΝυσιγ¨©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊςεχιξδΝυσιγ¨©εξδζυξγτιοξ Ν®χιμμΠμαωΝυσιγ¨©    ςετυςξ γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊχιμμΠμαωΝυσιγ¨©εξδζυξγτιοξ Ν®υξμοαδΕζζεγτ¨ζιμεξανε©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊυξμοαδΕζζεγτ¨ζιμεξανε©εξδζυξγτιοξ Ν®πςεμοαδΕζζεγτ¨ζιμεξανε©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊπςεμοαδΕζζεγτ¨ζιμεξανε©εξδζυξγτιοξ Ν®σετΕζζεγτσΦομυνε¨φομυνε©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊσετΕζζεγτσΦομυνε¨φομυνε©εξδζυξγτιοξ Ν®παυσεΕζζεγτ¨θαξδμε©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊπαυσεΕζζεγτ¨θαξδμε©εξδζυξγτιοξ Ν®ςεσυνεΑμμΕζζεγτσ¨θαξδμε©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊςεσυνεΑμμΕζζεγτσ¨©εξδζυξγτιοξ Ν®παυσεΝυσιγ¨©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊπαυσεΝυσιγ¨©εξδζυξγτιοξ Ν®ςεσυνεΕζζεγτ¨θαξδμε©    γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©ΊςεσυνεΕζζεγτ¨θαξδμε©εξδζυξγτιοξ Ν®ηετΙξσταξγε¨©    ςετυςξ γγ®ΣινπμεΑυδιοΕξηιξεΊηετΙξσταξγε¨©εξδζυξγτιοξ Ν®δεστςοωΙξσταξγε¨©    ςετυςξ γγ®ΣινπμεΑυδιοΕξηιξεΊδεστςοωΙξσταξγε¨©εξδΑυδιοΕξηιξε ½ Ν
+if nil == cc.SimpleAudioEngine then
+    return
+end
+--Encapsulate SimpleAudioEngine to AudioEngine,Play music and sound effects.
+local M = {}
+
+function M.stopAllEffects()
+    cc.SimpleAudioEngine:getInstance():stopAllEffects()
+end
+
+function M.getMusicVolume()
+    return cc.SimpleAudioEngine:getInstance():getMusicVolume()
+end
+
+function M.isMusicPlaying()
+    return cc.SimpleAudioEngine:getInstance():isMusicPlaying()
+end
+
+function M.getEffectsVolume()
+    return cc.SimpleAudioEngine:getInstance():getEffectsVolume()
+end
+
+function M.setMusicVolume(volume)
+    cc.SimpleAudioEngine:getInstance():setMusicVolume(volume)
+end
+
+function M.stopEffect(handle)
+    cc.SimpleAudioEngine:getInstance():stopEffect(handle)
+end
+
+function M.stopMusic(isReleaseData)
+    local releaseDataValue = false
+    if nil ~= isReleaseData then
+        releaseDataValue = isReleaseData
+    end
+    cc.SimpleAudioEngine:getInstance():stopMusic(releaseDataValue)
+end
+
+function M.playMusic(filename, isLoop)
+    local loopValue = false
+    if nil ~= isLoop then
+        loopValue = isLoop
+    end
+    cc.SimpleAudioEngine:getInstance():playMusic(filename, loopValue)
+end
+
+function M.pauseAllEffects()
+    cc.SimpleAudioEngine:getInstance():pauseAllEffects()
+end
+
+function M.preloadMusic(filename)
+    cc.SimpleAudioEngine:getInstance():preloadMusic(filename)
+end
+
+function M.resumeMusic()
+    cc.SimpleAudioEngine:getInstance():resumeMusic()
+end
+
+function M.playEffect(filename, isLoop)
+    local loopValue = false
+    if nil ~= isLoop then
+        loopValue = isLoop
+    end
+    return cc.SimpleAudioEngine:getInstance():playEffect(filename, loopValue)
+end
+
+function M.rewindMusic()
+    cc.SimpleAudioEngine:getInstance():rewindMusic()
+end
+
+function M.willPlayMusic()
+    return cc.SimpleAudioEngine:getInstance():willPlayMusic()
+end
+
+function M.unloadEffect(filename)
+    cc.SimpleAudioEngine:getInstance():unloadEffect(filename)
+end
+
+function M.preloadEffect(filename)
+    cc.SimpleAudioEngine:getInstance():preloadEffect(filename)
+end
+
+function M.setEffectsVolume(volume)
+    cc.SimpleAudioEngine:getInstance():setEffectsVolume(volume)
+end
+
+function M.pauseEffect(handle)
+    cc.SimpleAudioEngine:getInstance():pauseEffect(handle)
+end
+
+function M.resumeAllEffects(handle)
+    cc.SimpleAudioEngine:getInstance():resumeAllEffects()
+end
+
+function M.pauseMusic()
+    cc.SimpleAudioEngine:getInstance():pauseMusic()
+end
+
+function M.resumeEffect(handle)
+    cc.SimpleAudioEngine:getInstance():resumeEffect(handle)
+end
+
+function M.getInstance()
+    return cc.SimpleAudioEngine:getInstance()
+end
+
+function M.destroyInstance()
+    return cc.SimpleAudioEngine:destroyInstance()
+end
+
+AudioEngine = M

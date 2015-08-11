@@ -1,1 +1,96 @@
-­­ âéô ïðåòáôéïîŠŠâéô ½ âéô ïò ûýŠâéô®äáôá³² ½ ûýŠŠæïò é½±¬³² äïŠ    âéô®äáôá³²ÛéÝ½²Þ¨³²­é©ŠåîäŠŠæõîãôéïî âéô®ßâ²ä¨áòç©Š    ìïãáì îò½°Š    æïò é½±¬³² äïŠ        éæ áòçÛéÝ ½½± ôèåîŠ            îò½îò«âéô®äáôá³²ÛéÝŠ        åîäŠ    åîäŠ    òåôõòî  îòŠåîäŠŠæõîãôéïî âéô®ßä²â¨áòç©Š    áòç ½ áòç ¾½ ° áîä áòç ïò ¨°øÆÆÆÆÆÆÆÆ « áòç « ±©Š    ìïãáì ôò½ûýŠ    æïò é½±¬³² äïŠ        éæ áòç ¾½ âéô®äáôá³²ÛéÝ ôèåîŠ            ôòÛéÝ½±Š            áòç½áòç­âéô®äáôá³²ÛéÝŠ        åìóåŠ            ôòÛéÝ½°Š        åîäŠ    åîäŠ    òåôõòî   ôòŠåîäŠŠæõîãôéïî    âéô®ßáîä¨á¬â©Š    ìïãáì ïð±½âéô®ßä²â¨á©Š    ìïãáì ïð²½âéô®ßä²â¨â©Š    ìïãáì ò½ûýŠŠ    æïò é½±¬³² äïŠ        éæ ïð±ÛéÝ½½± áîä ïð²ÛéÝ½½±  ôèåîŠ            òÛéÝ½±Š        åìóåŠ            òÛéÝ½°Š        åîäŠ    åîäŠ    òåôõòî  âéô®ßâ²ä¨ò©ŠŠåîäŠŠæõîãôéïî    âéô®ßòóèéæô¨á¬î©Š    ìïãáì ïð±½âéô®ßä²â¨á©Š    î ½ î ¼½ ³² áîä î ïò ³²Š    î ½ î ¾½ ° áîä î ïò °ŠŠ    æïò é½³²¬ î«±¬ ­± äïŠ        ïð±ÛéÝ ½ ïð±Ûé­îÝŠ    åîäŠ    æïò é½±¬ î äïŠ        ïð±ÛéÝ ½ °Š    åîäŠŠ    òåôõòî  âéô®ßâ²ä¨ïð±©ŠåîäŠŠæõîãôéïî âéô®ßîïô¨á©Š    ìïãáì ïð±½âéô®ßä²â¨á©Š    ìïãáì ò½ûýŠŠ    æïò é½±¬³² äïŠ        éæ  ïð±ÛéÝ½½±   ôèåîŠ            òÛéÝ½°Š        åìóåŠ            òÛéÝ½±Š        åîäŠ    åîäŠ    òåôõòî âéô®ßâ²ä¨ò©ŠåîäŠŠæõîãôéïî âéô®ßïò¨á¬â©Š    ìïãáì ïð±½âéô®ßä²â¨á©Š    ìïãáì ïð²½âéô®ßä²â¨â©Š    ìïãáì ò½ûýŠŠ    æïò é½±¬³² äïŠ        éæ ïð±ÛéÝ½½± ïò ïð²ÛéÝ½½±  ôèåîŠ            òÛéÝ½±Š        åìóåŠ            òÛéÝ½°Š        åîäŠ    åîäŠ    òåôõòî âéô®ßâ²ä¨ò©ŠåîäŠŠâéô®âáîä   ½ âéô®âáîä ïò âéô®ßáîäŠâéô®òóèéæô ½ âéô®òóèéæô ïò âéô®ßòóèéæôŠâéô®âîïô   ½ âéô®âîïô ïò âéô®ßîïôŠ
+-- bit operation
+
+bit = bit or {}
+bit.data32 = {}
+
+for i=1,32 do
+    bit.data32[i]=2^(32-i)
+end
+
+function bit._b2d(arg)
+    local nr=0
+    for i=1,32 do
+        if arg[i] ==1 then
+            nr=nr+bit.data32[i]
+        end
+    end
+    return  nr
+end
+
+function bit._d2b(arg)
+    arg = arg >= 0 and arg or (0xFFFFFFFF + arg + 1)
+    local tr={}
+    for i=1,32 do
+        if arg >= bit.data32[i] then
+            tr[i]=1
+            arg=arg-bit.data32[i]
+        else
+            tr[i]=0
+        end
+    end
+    return   tr
+end
+
+function    bit._and(a,b)
+    local op1=bit._d2b(a)
+    local op2=bit._d2b(b)
+    local r={}
+
+    for i=1,32 do
+        if op1[i]==1 and op2[i]==1  then
+            r[i]=1
+        else
+            r[i]=0
+        end
+    end
+    return  bit._b2d(r)
+
+end
+
+function    bit._rshift(a,n)
+    local op1=bit._d2b(a)
+    n = n <= 32 and n or 32
+    n = n >= 0 and n or 0
+
+    for i=32, n+1, -1 do
+        op1[i] = op1[i-n]
+    end
+    for i=1, n do
+        op1[i] = 0
+    end
+
+    return  bit._b2d(op1)
+end
+
+function bit._not(a)
+    local op1=bit._d2b(a)
+    local r={}
+
+    for i=1,32 do
+        if  op1[i]==1   then
+            r[i]=0
+        else
+            r[i]=1
+        end
+    end
+    return bit._b2d(r)
+end
+
+function bit._or(a,b)
+    local op1=bit._d2b(a)
+    local op2=bit._d2b(b)
+    local r={}
+
+    for i=1,32 do
+        if op1[i]==1 or op2[i]==1  then
+            r[i]=1
+        else
+            r[i]=0
+        end
+    end
+    return bit._b2d(r)
+end
+
+bit.band   = bit.band or bit._and
+bit.rshift = bit.rshift or bit._rshift
+bit.bnot   = bit.bnot or bit._not

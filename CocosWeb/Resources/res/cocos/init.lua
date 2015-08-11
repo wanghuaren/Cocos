@@ -1,1 +1,106 @@
-­­ΫΫΓοπωςιηθτ ¨γ© ²°±±­²°±µ γθυλοξη­ιξγγ®γονΠεςνισσιοξ ισ θεςεβω ηςαξτεδ¬ ζςεε οζ γθαςηε¬ το αξω πεςσοξ οβταιξιξη α γοπωοζ τθισ σοζτχαςε αξδ ασσογιατεδ δογυνεξτατιοξ ζιμεσ ¨τθε ΆΣοζτχαςεΆ©¬ το δεαμιξ τθε Σοζτχαςε χιτθουτ ςεστςιγτιοξ¬ ιξγμυδιξη χιτθουτ μινιτατιοξ τθε ςιηθτστο υσε¬ γοπω¬ νοδιζω¬ νεςηε¬ πυβμισθ¬ διστςιβυτε¬ συβμιγεξσε¬ αξδ―ος σεμμγοπιεσ οζ τθε Σοζτχαςε¬ αξδ το πεςνιτ πεςσοξσ το χθον τθε Σοζτχαςε ισζυςξισθεδ το δο σο¬ συβκεγτ το τθε ζομμοχιξη γοξδιτιοξσΊΤθε αβοφε γοπωςιηθτ ξοτιγε αξδ τθισ πεςνισσιοξ ξοτιγε σθαμμ βε ιξγμυδεδ ιξαμμ γοπιεσ ος συβσταξτιαμ ποςτιοξσ οζ τθε Σοζτχαςε®ΤΘΕ ΣΟΖΤΧΑÒΕ ΙΣ ΠÒΟΦΙΔΕΔ ΆΑΣ ΙΣΆ¬ ΧΙΤΘΟΥΤ ΧΑÒÒΑΞΤΩ ΟΖ ΑΞΩ ΛΙΞΔ¬ ΕΨΠÒΕΣΣ ΟÒΙΝΠΜΙΕΔ¬ ΙΞΓΜΥΔΙΞΗ ΒΥΤ ΞΟΤ ΜΙΝΙΤΕΔ ΤΟ ΤΘΕ ΧΑÒÒΑΞΤΙΕΣ ΟΖ ΝΕÒΓΘΑΞΤΑΒΙΜΙΤΩ¬ΖΙΤΞΕΣΣ ΖΟÒ Α ΠΑÒΤΙΓΥΜΑÒ ΠΥÒΠΟΣΕ ΑΞΔ ΞΟΞΙΞΖÒΙΞΗΕΝΕΞΤ® ΙΞ ΞΟ ΕΦΕΞΤ ΣΘΑΜΜ ΤΘΕΑΥΤΘΟÒΣ ΟÒ ΓΟΠΩÒΙΗΘΤ ΘΟΜΔΕÒΣ ΒΕ ΜΙΑΒΜΕ ΖΟÒ ΑΞΩ ΓΜΑΙΝ¬ ΔΑΝΑΗΕΣ ΟÒ ΟΤΘΕÒΜΙΑΒΙΜΙΤΩ¬ ΧΘΕΤΘΕÒ ΙΞ ΑΞ ΑΓΤΙΟΞ ΟΖ ΓΟΞΤÒΑΓΤ¬ ΤΟÒΤ ΟÒ ΟΤΘΕÒΧΙΣΕ¬ ΑÒΙΣΙΞΗ ΖÒΟΝ¬ΟΥΤ ΟΖ ΟÒ ΙΞ ΓΟΞΞΕΓΤΙΟΞ ΧΙΤΘ ΤΘΕ ΣΟΖΤΧΑÒΕ ΟÒ ΤΘΕ ΥΣΕ ΟÒ ΟΤΘΕÒ ΔΕΑΜΙΞΗΣ ΙΞΤΘΕ ΣΟΖΤΧΑÒΕ®έέςερυιςε Άγογοσ®γογοσ²δ®Γογοσ²δΆςερυιςε Άγογοσ®γογοσ²δ®Γογοσ²δΓοξσταξτσΆςερυιςε Άγογοσ®γογοσ²δ®ζυξγτιοξσΆίίΗίίΤÒΑΓΛΒΑΓΛίί ½ ζυξγτιοξ¨νση©    μογαμ νση ½ δεβυη®τςαγεβαγλ¨νση¬ ³©    πςιξτ¨νση©    ςετυςξ νσηεξδ­­ οπεξημςερυιςε Άγογοσ®γογοσ²δ®ΟπεξημΆςερυιςε Άγογοσ®γογοσ²δ®ΟπεξημΓοξσταξτσΆ­­ αυδιοςερυιςε Άγογοσ®γογοσδεξσθιοξ®ΑυδιοΕξηιξεΆ­­ γογοσστυδιοιζ ξιμ ώ½ γγσ τθεξ    ςερυιςε Άγογοσ®γογοστυδιο®ΓογοΣτυδιοΆεξδ­­ υιιζ ξιμ ώ½ γγυι τθεξ    ςερυιςε Άγογοσ®υι®ΗυιΓοξσταξτσΆ    ςερυιςε Άγογοσ®υι®εψπεςινεξταμΥΙΓοξσταξτσΆεξδ­­ εψτεξσιοξσςερυιςε Άγογοσ®εψτεξσιοξ®ΕψτεξσιοξΓοξσταξτσΆ­­ ξετχοςλςερυιςε Άγογοσ®ξετχοςλ®ΞετχοςλΓοξσταξτσΆ­­ Σπιξειζ ξιμ ώ½ σπ τθεξ    ςερυιςε Άγογοσ®σπιξε®ΣπιξεΓοξσταξτσΆεξδςερυιςε Άγογοσ®γογοσ²δ®δεπςεγατεδΆςερυιςε Άγογοσ®γογοσ²δ®ΔςαχΠςινιτιφεσΆ­­ Μυα εψτεξσιοξσςερυιςε Άγογοσ®γογοσ²δ®βιτΕψτεξδΆ­­ ΓΓΜυαΕξηιξεςερυιςε Άγογοσ®γογοσ²δ®ΔεπςεγατεδΓογοσ²δΓμασσΆςερυιςε Άγογοσ®γογοσ²δ®ΔεπςεγατεδΓογοσ²δΕξυνΆςερυιςε Άγογοσ®γογοσ²δ®ΔεπςεγατεδΓογοσ²δΖυξγΆςερυιςε Άγογοσ®γογοσ²δ®ΔεπςεγατεδΟπεξημΕξυνΆ­­ ςεηιστεςίγογοστυδιοίνοδυμειζ ξιμ ώ½ γγσ τθεξ    ςερυιςε Άγογοσ®γογοστυδιο®ΔεπςεγατεδΓογοΣτυδιοΓμασσΆ    ςερυιςε Άγογοσ®γογοστυδιο®ΔεπςεγατεδΓογοΣτυδιοΖυξγΆεξδ­­ ςεηιστεςίγογοσβυιμδεςίνοδυμεςερυιςε Άγογοσ®γογοσβυιμδες®ΔεπςεγατεδΓογοσΒυιμδεςΓμασσΆ­­ ςεηιστεςίγογοσδεξσθιοξίνοδυμεςερυιςε Άγογοσ®γογοσδεξσθιοξ®ΔεπςεγατεδΓογοσΔεξσθιοξΓμασσΆςερυιςε Άγογοσ®γογοσδεξσθιοξ®ΔεπςεγατεδΓογοσΔεξσθιοξΖυξγΆ­­ ςεηιστεςίεψτεξσιοξίνοδυμεςερυιςε Άγογοσ®εψτεξσιοξ®ΔεπςεγατεδΕψτεξσιοξΓμασσΆςερυιςε Άγογοσ®εψτεξσιοξ®ΔεπςεγατεδΕψτεξσιοξΕξυνΆςερυιςε Άγογοσ®εψτεξσιοξ®ΔεπςεγατεδΕψτεξσιοξΖυξγΆ­­ ςεηιστεςίξετχοςλίνοδυμεςερυιςε Άγογοσ®ξετχοςλ®ΔεπςεγατεδΞετχοςλΓμασσΆςερυιςε Άγογοσ®ξετχοςλ®ΔεπςεγατεδΞετχοςλΕξυνΆςερυιςε Άγογοσ®ξετχοςλ®ΔεπςεγατεδΞετχοςλΖυξγΆ­­ ςεηιστεςίυιίνουδμειζ ξιμ ώ½ γγυι τθεξ    ςερυιςε Άγογοσ®υι®ΔεπςεγατεδΥΙΕξυνΆ    ςερυιςε Άγογοσ®υι®ΔεπςεγατεδΥΙΖυξγΆεξδ­­ γογοσβυιμδεςςερυιςε Άγογοσ®γογοσβυιμδες®ΓΓΒÒεαδεςΜοαδΆιζ ΓΓίΥΣΕίΖÒΑΝΕΧΟÒΛ τθεξ    ςερυιςε Άγογοσ®ζςανεχοςλ®ιξιτΆεξδ
+--[[
+
+Copyright (c) 2011-2015 chukong-incc.com
+
+Permission is hereby granted, free of charge, to any person obtaining a copy
+of this software and associated documentation files (the "Software"), to deal
+in the Software without restriction, including without limitation the rights
+to use, copy, modify, merge, publish, distribute, sublicense, and/or sell
+copies of the Software, and to permit persons to whom the Software is
+furnished to do so, subject to the following conditions:
+
+The above copyright notice and this permission notice shall be included in
+all copies or substantial portions of the Software.
+
+THE SOFTWARE IS PROVIDED "AS IS", WITHOUT WARRANTY OF ANY KIND, EXPRESS OR
+IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY,
+FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE
+AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER
+LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
+OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN
+THE SOFTWARE.
+
+]]
+
+require "cocos.cocos2d.Cocos2d"
+require "cocos.cocos2d.Cocos2dConstants"
+require "cocos.cocos2d.functions"
+
+__G__TRACKBACK__ = function(msg)
+    local msg = debug.traceback(msg, 3)
+    print(msg)
+    return msg
+end
+
+-- opengl
+require "cocos.cocos2d.Opengl"
+require "cocos.cocos2d.OpenglConstants"
+-- audio
+require "cocos.cocosdenshion.AudioEngine"
+-- cocosstudio
+if nil ~= ccs then
+    require "cocos.cocostudio.CocoStudio"
+end
+-- ui
+if nil ~= ccui then
+    require "cocos.ui.GuiConstants"
+    require "cocos.ui.experimentalUIConstants"
+end
+
+-- extensions
+require "cocos.extension.ExtensionConstants"
+-- network
+require "cocos.network.NetworkConstants"
+-- Spine
+if nil ~= sp then
+    require "cocos.spine.SpineConstants"
+end
+
+require "cocos.cocos2d.deprecated"
+require "cocos.cocos2d.DrawPrimitives"
+
+-- Lua extensions
+require "cocos.cocos2d.bitExtend"
+
+-- CCLuaEngine
+require "cocos.cocos2d.DeprecatedCocos2dClass"
+require "cocos.cocos2d.DeprecatedCocos2dEnum"
+require "cocos.cocos2d.DeprecatedCocos2dFunc"
+require "cocos.cocos2d.DeprecatedOpenglEnum"
+
+-- register_cocostudio_module
+if nil ~= ccs then
+    require "cocos.cocostudio.DeprecatedCocoStudioClass"
+    require "cocos.cocostudio.DeprecatedCocoStudioFunc"
+end
+
+
+-- register_cocosbuilder_module
+require "cocos.cocosbuilder.DeprecatedCocosBuilderClass"
+
+-- register_cocosdenshion_module
+require "cocos.cocosdenshion.DeprecatedCocosDenshionClass"
+require "cocos.cocosdenshion.DeprecatedCocosDenshionFunc"
+
+-- register_extension_module
+require "cocos.extension.DeprecatedExtensionClass"
+require "cocos.extension.DeprecatedExtensionEnum"
+require "cocos.extension.DeprecatedExtensionFunc"
+
+-- register_network_module
+require "cocos.network.DeprecatedNetworkClass"
+require "cocos.network.DeprecatedNetworkEnum"
+require "cocos.network.DeprecatedNetworkFunc"
+
+-- register_ui_moudle
+if nil ~= ccui then
+    require "cocos.ui.DeprecatedUIEnum"
+    require "cocos.ui.DeprecatedUIFunc"
+end
+
+-- cocosbuilder
+require "cocos.cocosbuilder.CCBReaderLoad"
+
+if CC_USE_FRAMEWORK then
+    require "cocos.framework.init"
+end
